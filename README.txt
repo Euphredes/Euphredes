@@ -105,9 +105,9 @@ landed upright on a set of words.
 Phaedrah tells me she shed a tear after 
 reading Moby Dick. 
 
-           Boston 
+           (Boston) 
 
-He's just passing through, chill. 
+(He's just passing through, chill.) 
 
            Sea 
 
