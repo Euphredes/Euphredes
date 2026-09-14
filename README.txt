@@ -421,7 +421,7 @@ gadgets and gizmos. The encyclopedias
 offer provoking definitions. These are 
 like parts: clay, cogs, etc. 
 
-Like my Table upstairs from Mr. Ford, do 
+Like my Table ondeck from Mr. Ford, do 
 not touch my Tables from Nietzsche and 
 Ireland. 
 
@@ -437,7 +437,8 @@ as an ore desposit for the witch.
 In rooms, I'll offer books covering 
 linguistic demonstrations. I'll reveal 
 some procedures and plans. The first 
-room I'll show you is the most serious. 
+room, AUTHORITY, I'll show you is the 
+most serious. 
 
            Introduction 
            ------------ 
