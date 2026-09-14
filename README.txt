@@ -46,15 +46,15 @@ These other men build you tools: car,
 phone, home. The industrial build you 
 places: town, city, state. 
 
-Ruben tells me to warehouse to 
-distribute all resources to 
-maximize Mass consumer satisfaction. 
+Ruben tells me to warehouse all 
+resources to then maximize Mass consumer 
+satisfaction. 
 
-           Cannon 
+           Cannons 
 
 Ludwig tells me only poets are meant to 
 speak. He tells me language itself is 
-playing games on knowledge. Let this 
+playing games on knowledge. Let me 
 Yankee Doodle Dandy. The pen scripts 
 swordplay. What irishmanhood leads the 
 dance? 
@@ -69,7 +69,7 @@ time seriously enough. The storytellers
 step aside. The linguists take center 
 stage. 
 
-           Tear 
+           Tears 
 
 A poet's tears become bullets when they 
 freeze. You see, reader, when I take 
@@ -107,7 +107,7 @@ Perhaps you too, reader, call .it.
 something different than: ego. But who 
 would want to deal with such a dangerous 
 perhaps? Who would want to admit to 
-such a mysterioius partner that makes 
+such a mysterious partner that makes 
 choices with you? For that one must 
 seek a detour in one's life away from 
 the hustle and bustle that is society's 
@@ -117,7 +117,7 @@ One must walk outside with .it., past
 street signs far away from home that 
 remind one of what has already been 
 experienced but yet, somehow, still 
-stay around one in new places that one 
+stays around one in new places that one 
 is strange to. So far removed from 
 society's duties, no one else should 
 pity such a detour. There! inwardly 
@@ -130,7 +130,7 @@ lay claim to .it., knowing I am not
 
 Emerson tells me of a circle. If myself 
 and another person shared same exact 
-slices from the circ;le, we would be the 
+slices from the circle, we would be the 
 same person inwardly. History's 
 escavation of that circle is knowledge 
 by one name. Such a circle is what 
@@ -143,7 +143,7 @@ Longitude:
 A chicken farmer builds a two-story 
 cabin on a lake in Maine. On the other 
 side of the dirt road in these woods, 
-his workshop: a woodshed. 
+his workshop: a toolshed. 
 
 One day, the State shows up and tells 
 Mel to pick which building to keep 
@@ -153,7 +153,7 @@ Later, the State comes to check on Mel
 and finds both buildings still there. 
 Mel tells the State to notice the 
 trailer with wheels upholding his 
-woodshed. because it moves, it can stay. 
+toolshed. because it moves, it can stay. 
 
 Latitude: 
 Mel is driving down the dirt road to his 
@@ -402,7 +402,7 @@ Ireland.
 I did not mean to scare you with my 
 Oracle from Apollo. I got some free 
 advice from a veteran one time. It 
-afforded me insight. 
+afforded me such insight. 
 
 Be wary of just one book, Phaedrah. It 
 is the least controlled, as it is meant 
@@ -413,41 +413,13 @@ linguistic demonstrations. I'll reveal
 some procedures and plans. The first 
 room I'll show you is the most serious. 
 
-
-
-
-
-
-
-
-
-
            Introduction 
            ------------ 
 
-           Review 
-
-What is it? 
-Who is it for? 
-Where has it been? 
-Where is it going? 
-How is it done in two parts? 
-
            Storyline 
 
-Opponent 
- Maslow's Pyramid 
-Game 
- Heist 
-Monster 
- Penal Colony 
-Outward 
- Physical Adventure 
-Inward 
- Obstacle Course 
-
-Maslow tells me the way up is by 
-respecting the Hieracrhcy of Needs 
+Maslow tells me the way up in life is 
+by respecting the Hierarchy of Needs 
 he established. The bottom level 
 focuses on survival, the middle 
 level focuses on social life, and 
@@ -468,26 +440,44 @@ Ship. Well, that makes for a heist.
 
            Approach 
 
-Problem 
- Slitherlink Knapsack 
-Sets 
- Destinations 
- Traps 
- Items 
- Storages 
-Solver 
- Greedy 
+The navigation system of my Ship solves 
+a twofold problem: the Slitherlink 
+Problem and the Knapsack Problem. There 
+are a set of destinations to travel for 
+making exchanges. There are traps 
+scattered throughout the places I 
+travel. The traps are evaded, not 
+confronted. There are items I need to 
+acquire and carry for survival and 
+distribution. There are storage sites 
+for exchanges, breaks, and sleep. A 
+shortsighted approach is used: travel 
+slow and only consider one move ahead 
+at a time: the best available move. 
+Such an approach allows my Ship to 
+adapt suddenly, because my evasion 
+tactics are proactive, not reactive. 
 
            Responsibilities 
 
-Mentally 
- Silence 
-Physically 
- Momentum 
-Spiritually 
- Focus 
+My responsibilities are simple: 
+1. Mental. 
+2. Physical. 
+3. Spiritual. 
 
-           * * * 
+Details: 
+1. Silence is King. There is no 
+   diagnosis for being quiet. 
+2. Momentum is Moral. It is easier to 
+   keep going 55 MPH when one has 
+   already been going such a speed. 
+   The new effort is all that one 
+   really feels when one has steady 
+   effort a moment ago. This morality 
+   shows up to find out how to come 
+   correctly. 
+3. Glow is Go. If it gives you a glow, 
+   use it to give you a go. 
 
 
            AUTHORITY 
