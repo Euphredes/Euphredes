@@ -73,7 +73,7 @@ places: town, city, state.
 
 Ruben tells me to warehouse all 
 resources to then maximize Mass consumer 
-satisfaction. 
+satisfaction through distribution. 
 
            Cannons 
 
