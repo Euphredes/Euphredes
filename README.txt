@@ -454,7 +454,7 @@ the top level focuses on the
 individual. The bottom must be 
 established first, then the middle, 
 and finally the top need can be 
-acheived: the crown jewel: the eye 
+achieved: the crown jewel: the eye 
 on the pyramid of the dollar bill: 
 I see I am such, I feel so, others 
 see such, and others don't stop 
