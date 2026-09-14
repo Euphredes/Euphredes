@@ -523,6 +523,333 @@ Person
 Table 
 Mystery 
 
+           Introduction 
+           ------------ 
+
+           Criminal 
+
+The central constitutional 
+proposition is that sovereignty is 
+achieved by conduct. 
+
+The document therefore attempts to 
+demonstrate a sovereignty before 
+formally explaining or judging it. 
+
+The conduct makes the system 
+operational on the physical ground 
+floor of earth. Its legitimacy is 
+therefore not merely declarative. It 
+is not arbitrary in the sense of 
+"because I said so." It has an 
+objectical basis because it is 
+enacted. 
+
+"Objecticality" names the raw 
+sensations preceding the minimal 
+interpretations that produce what 
+is ordinarily called "objectivity." 
+The words of the book are raw sensual 
+experiences dressed in analytical yet 
+poetic interpretations: analysis and 
+poetry are both pattern-seeking 
+disciplines. 
+
+The constitution is consequently 
+understood as an articulation of 
+patterns that emerge from lived 
+conduct rather than an abstraction 
+imposed upon life beforehand. 
+
+The larger political proposition is 
+that a person can exist as a 
+sovereign within another sovereignty. 
+This does not necessarily mean 
+escaping the state or denying its 
+laws. It means maintaining a domain 
+of self-government through conduct 
+while physically and legally existing 
+inside a larger political order. 
+
+The American origin story provides 
+an important historical analogy: 
+sovereignty was enacted through 
+conduct before it was fully secured 
+as a legal and political fact. The 
+same kind of behavior can fail 
+within existing political and legal 
+structures, particularly when those 
+structures are experienced as broken. 
+The response is not necessarily to 
+wait for institutional repair, but 
+to live according to a system that 
+makes self-government operational 
+in one's own life. 
+
+The constitution does not merely 
+describe permissions. Its words are 
+descriptions of a system that has 
+been and continues to be performed. 
+
+Its authority comes from continued 
+enactment rather than declaration 
+alone. 
+
+           Counties 
+           -------- 
+
+           Drifter 
+
+1. Oxford County, ME. 
+2. Hillsborough County, NH. 
+3. Essex County, MA. 
+4. Suffolk County, MA. 
+5. Plymouth County, MA. 
+6. Barnstable County, MA. 
+7. Bristol County, MA. 
+8. Newport County, RI. 
+9. Washington County, RI. 
+10. New London County, CT. 
+11. Middlesex County, CT. 
+12. New Haven County, CT. 
+13. Fairfield County, CT. 
+14. Westchester County, NY. 
+15. Bronx County, NY. 
+16. New York County, NY. 
+17. Bergen County, NJ. 
+18. Essex County, NJ. 
+19. Union County, NJ. 
+20. Middlesex County, NJ. 
+21. Mercer County, NJ. 
+22. Philadelphia County, PA. 
+23. Delaware County, PA. 
+24. New Castle County, DE. 
+25. Cecil County, MD. 
+26. Harford County, MD. 
+27. Baltimore County, MD. 
+28. Middlesex County, MA. 
+29. Worcester County, MA. 
+30. Hampden County, MA. 
+31. Hartford County, CT. 
+32. Litchfield County, CT. 
+33. Putnam County, NY. 
+34. Rockland County, NY. 
+35. Dutchess County, NY. 
+36. Orange County, NY. 
+
+           Person 
+           ------ 
+
+           Schoolmanship 
+
+VII. 
+Central Catholic Highschool in 
+ Lawrence Massachusetts. 
+Rochester Institute of Technology in 
+ Rochester New York. 
+AA Big Book Meetings in the 
+ Merrimack Valley of Massachusetts, 
+ as well as Southern New Hampshire. 
+Student of Friedrich Nietzsche to 
+ acquire some table of values. 
+Student of Henry David Thoreau to 
+ demonstrate walking life without 
+ income as some sort of crusade. 
+Lover of Emily Dickinson to find 
+ out about Mystical Experiences. 
+
+           Workmanship 
+
+VIII. 
+Continuous Improvement Engineer 
+ (Intern) at JMA Wireless in 
+ Liverpool New York. 
+Product Management Analyst 
+ (Intern) at Mercury Systems in 
+ Chelmsford Massachusetts. 
+Simulation Modeler (Student) at 
+ Rochester Institute of Technology in 
+ Rochester New York for the United 
+ States Department of Defense. 
+Data Analyst (Intern) at Geisinger 
+ Health in Danville Pennsylvania. 
+Data Scientist (Intern) at Geisinger 
+ Health in Danville Pennsylvania. 
+Researcher (Student) at Rochester 
+ Institute of Technology in Rochester 
+ New York for the Bill and Melinda 
+ Gates Foundation. 
+Data Scientist at Aspen Technology in 
+ Bedford Massachusetts. 
+Data Analytics Engineer at 
+ FacilityConneX in Nashua New 
+ Hampshire. 
+Digital Creator of mixtapes on 
+ SoundCloud, scientific engines 
+ on GitHub, and Individual 
+ Sovereignty. 
+Walker of thirty-six counties in 
+ America to discipline my mind,  
+ foster my Mysticism, and deliver 
+ artifacts of how I think and feel to 
+ assert: labor independently justifies 
+ labor economics, which yields 
+ Greanleaf practices as contribution 
+ to America's economics. 
+
+           Detention 
+
+IX. 
+Ten psychiatric inpatient admissions 
+ across Massachusetts, Connecticut, 
+ New York, New Jersey, Pennsylvania, 
+ and Maryland. 
+Bridgewater State Hospital in 
+ Bridgewater Massachusetts. 
+Worcester Recovery Center in 
+ Worcester Massachusetts. 
+Middleton Correctional Facility in 
+ Middleton Massachusetts. 
+
+           Programs 
+
+X. 
+Two halfway houses in Boston 
+ Massachusetts. 
+An additional sixteen recovery 
+ programs around the Greater Boston 
+ Area of Massachusetts. 
+Training Center of The Great Rock 
+ Church in Danvers Massachusetts. 
+
+           Militant 
+
+Logically, my practices everyday 
+yield a body-for-body exchange 
+system. In such a system, money is 
+not the exchange factor. It is my 
+birthright to choose how I practice 
+exchange to survive. It is my body 
+for another body to improve. Notice: 
+in any military, each badge is earned 
+by crossing a line. 
+
+           Table 
+           ----- 
+
+           Tablelegs 
+
+From Nietzsche: 
+1. There is an artist after my heart: he, 
+   really, only wants two things: food 
+   and witchcraft. 
+2. To bear a load one cannot carry, nor 
+   unload: the case of the epic poet. 
+3. Answer to one of the questions of 
+   consciousness: a fugitive. 
+4. I caught you nihilist: only thoughts 
+   had while walking have value. 
+
+           Tabletop 
+
+Smack Dubliners and A Portrait of the Artist 
+ as a Young Man--And Other Works: at the 
+ minting outside of the Masonic 
+ Temple in downtown Nashua by the 
+ Nashua River in New Hampshire. 
+Pitch a water bottle at the Liberty Bell 
+ on the other side of the street in 
+ aforesaid Nashua New Hampshire. 
+Incarcerated in Bridgewater State Hospital 
+ of Massachusetts. 
+Living outside to show the world what 
+ running The Ave looks like to me: 
+ Tewksbury Massachusetts to New Haven 
+ Connecticut. 
+Second time outside: Boston Massachusetts 
+ to Philadelphia Pennsylvania, then 
+ Wilmington Delaware to Boston 
+ Massachusetts. 
+Incarcerated in Middleton Correctional 
+ Facility in Massachusetts. 
+Third time outside: Danvers Massachusetts 
+ to Baltimore Maryland, then Edgewood 
+ Maryland to Philadelphia Pennsylvania. 
+Nashua spellwork: The starting point is 
+ my problem with the Haverhill Masonic 
+ Lodge in Massachusetts, and the ending 
+ point is Philadelphia Liberty in 
+ Pennsylvania. Such ritualwork only 
+ affords me space from New England to 
+ Philadelphia Pennsylvania. 
+
+           Mystery 
+           ------- 
+
+           Mindreaders 
+
+Respect: 
+1. Love for family and friends. 
+2. Praise rarity. Protect rarity. 
+3. Be nice. 
+4. Have a battle buddy. 
+5. Be honest or silent. 
+6. Give care. 
+7. Recognize any Sovereign. 
+
+           Nonmaterial 
+
+I just want to feed on and support the 
+nonmaterial... something like invisible 
+water. 
+
+           Loyalty 
+
+I don't want to betray her with other 
+drives. 
+
+           Chief 
+
+Negate the rest as passage to her. 
+
+           Godliness 
+
+Attitude starts at the destination. It's 
+only a matter of physical demonstration 
+to get my body there. 
+
+           Solver 
+
+it is solved by walking 
+where 
+this train only moves forward. 
+
+           Labor 
+
+Walking is how I earn what I show up for. 
+
+           Share 
+
+I let my body and mind become loose or 
+limp, so she can control my motor skills. 
+
+           Protection 
+
+What I place attention on will create 
+protection against what I don't place 
+attention on. 
+
+           Buoy 
+
+I sway my shoulders left and right such 
+that my head to feet feel like a flower 
+in the breeze. 
+
+           Barter 
+
+I leave things behind as an exchange 
+system. 
+
            ------------- 
            J.G.: 
            A Sovereignty 
