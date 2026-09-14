@@ -4,7 +4,7 @@
            AN EPIC 
 
 
-           A BOOK FOR THE SOFT 
+           A BOOK FOR THE EVASIVE 
 
 
            Publishing 
@@ -24,15 +24,29 @@ Location: Philadelphia, PA.
 
            Contents 
 
-Overview 
+Deck 
 Introduction 
 AUTHORITY 
 MYSTERY 
 RESTORATION 
 BOUNTIFUL 
 
-           Overview 
-           -------- 
+           Deck 
+           ---- 
+
+           Hey 
+
+Hey man. 
+(What's good.) 
+
+Checking my traps over in the cove. 
+(You the one that took my cigarette on the dock.) 
+
+Nah, I've never seen your face. 
+(You got a cigarette?) 
+
+Yeah. 
+(What's up with your deck?) 
 
            Policy 
 
