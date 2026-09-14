@@ -408,7 +408,7 @@ City
 This text is two-story. The first floor 
 has four rooms, starting with AUTHORITY 
 and ending with BOUNTIFUL. I just gave 
-you, reader, a tour of the top floor of 
+you, reader, a tour of the topdeck of 
 my Ship. Walk downstairs. 
 
            Foot 
@@ -421,7 +421,7 @@ gadgets and gizmos. The encyclopedias
 offer provoking definitions. These are 
 like parts: clay, cogs, etc. 
 
-Like my Table ondeck from Mr. Ford, do 
+Like my Table from Mr. Ford uptop, do 
 not touch my Tables from Nietzsche and 
 Ireland. 
 
@@ -437,15 +437,14 @@ as an ore desposit for the witch.
 In rooms, I'll offer books covering 
 linguistic demonstrations. I'll reveal 
 some procedures and plans. The first 
-room, AUTHORITY, I'll show you is the 
-most serious. 
+room, AUTHORITY, is the most serious. 
 
            Introduction 
            ------------ 
 
            Storyline 
 
-Maslow tells me the way up in life is 
+Maslow tells me to move up in life is 
 by respecting the Hierarchy of Needs 
 he established. The bottom level 
 focuses on survival, the middle 
@@ -467,7 +466,7 @@ Ship. Well, that makes for a heist.
 
            Approach 
 
-The navigation system of my Ship solves 
+The navigation of my Ship solves 
 a twofold problem: the Slitherlink 
 Problem and the Knapsack Problem. There 
 are a set of destinations to travel for 
