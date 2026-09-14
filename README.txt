@@ -1,7 +1,10 @@
 
 
-           SHIP 
+           FLEET 
            AN EPIC 
+
+
+           A BOOK FOR THE SOFT 
 
 
            Publishing 
@@ -18,9 +21,34 @@ Location: Philadelphia, PA.
            Ship 
            ---- 
 
-           Claim 
+           Contents 
 
-I. 
+Overview 
+Introduction 
+AUTHORITY 
+MYSTERY 
+RESTORATION 
+BOUNTIFUL 
+
+           Overview 
+           -------- 
+
+           Policy 
+
+           Industrial 
+
+           Cannon 
+
+           Perhaps 
+
+           Tear 
+
+           Migration 
+
+           Boston 
+
+           Sea 
+
 A thought happens when .it. wants to, 
 not when I want it. The closest 
 experience I'm abused by daily, 
@@ -63,47 +91,9 @@ is left of the famous, owld .it. I
 lay claim to .it., knowing I am not 
 .it. 
 
-II. 
-When a person is facing death, all 
-that one can trust is still with them 
-entirely, even if one goes down, is 
-one's stories up to that point. 
-Only one's own stories go to 
-the grave with oneself: that is the 
-person's bounty. 
+           Map 
 
-           Invoke 
-
-I. 
-just me and my environment. 
-just me and my thoughts. 
-just me and her. 
-just her. 
-
-I just need to be held. 
-around her, 
-I melt 
-yet stay contained. 
-I am her cup of water. 
-
-this hunt for answers. 
-they keep falling out 
-onto the ground. 
-she is the only answer. 
-
-focus on her. 
-it is her time, 
-Herstory. 
-
-II. 
-communication and touch. 
-waiting for the moon. 
-smoke and drink on the ground. 
-look only inward. 
-
-           Evoke 
-
-I. 
+Longitude: 
 A chicken farmer builds a two-story 
 cabin on a lake in Maine. On the other 
 side of the dirt road in these woods, 
@@ -119,7 +109,7 @@ Mel tells the State to notice the
 trailer with wheels upholding his 
 woodshed. because it moves, it can stay. 
 
-II. 
+Latitude: 
 Mel is driving down the dirt road to his 
 cabin, one day. He spots a truck turned 
 over in the ditch on the side of the 
@@ -146,13 +136,72 @@ two men found out one thing about the
 other, both catch a break: a stepping 
 stone for one's next move. 
 
-           Contents 
+           Compass 
 
-Introduction 
-AUTHORITY 
-MYSTERY 
-RESTORATION 
-BOUNTIFUL 
+           Witch 
+
+Spirit: 
+just me and my environment. 
+just me and my thoughts. 
+just me and her. 
+just her. 
+
+communication and touch. 
+waiting for the moon. 
+smoke and drink on the ground. 
+look only inward. 
+
+Water: 
+I just need to be held. 
+around her, 
+I melt 
+yet stay contained. 
+I am her cup of water. 
+
+Wind: 
+this hunt for answers. 
+they keep falling out 
+onto the ground. 
+she is the only answer. 
+focus on her. 
+it is her time, 
+Herstory. 
+
+           Walnut 
+
+           Mutany 
+
+           Sail 
+
+           Sailors 
+
+           Smoke 
+
+           Death 
+
+When a person is facing death, all 
+that one can trust is still with them 
+entirely, even if one goes down, is 
+one's stories up to that point. 
+Only one's own stories go to 
+the grave with oneself: that is the 
+person's bounty. 
+
+           Fleet 
+
+           Oracle 
+
+
+           Tablelegs 
+
+
+           Tabletop 
+
+
+           Tour 
+
+
+           Foot 
 
            Introduction 
            ------------ 
