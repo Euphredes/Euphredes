@@ -43,7 +43,7 @@ Checking my traps over in the cove.
 (You the one that took my cigarette on 
  the dock.) 
 
-Nah, I've never seen your face. 
+I've never seen your face. 
 (You got a cigarette?) 
 
 Yeah. 
@@ -57,7 +57,7 @@ Good looks.
 So, I'm a poet. Aside from jug 
  fishing. Belowdeck is my writer's 
  lab. 
-(Tell me some of it). 
+(Show me some of it). 
 
            Policy 
 
@@ -266,7 +266,7 @@ were blue eyes once upon a time.
 
            Mutany 
 
-New England. This is a traitor's title. 
+New England. That is a traitor's title. 
 Mr. Washington and Company tell me 
 England is too incompetent. I motion for 
 a Fleet: reader, second this motion: for 
@@ -342,7 +342,7 @@ more than a responsible import of
 resources to places. 
 
 Like Mr. Ford, my name is not signed 
-on the Declaration of Indpendence. 
+on the Declaration of Independence. 
 Anyone whose name isn't signed, 
 methinks, is not in the set: We The 
 People. That! makes a canidate for 
@@ -405,7 +405,7 @@ City
 
            Tour 
 
-This text is two-story. The first floor 
+This text is two-story. Belowdeck 
 has four rooms, starting with AUTHORITY 
 and ending with BOUNTIFUL. I just gave 
 you, reader, a tour of the topdeck of 
@@ -444,10 +444,10 @@ room, AUTHORITY, is the most serious.
 
            Storyline 
 
-Maslow tells me to move up in life is 
-by respecting the Hierarchy of Needs 
-he established. The bottom level 
-focuses on survival, the middle 
+Maslow tells me to move up in life 
+by respecting the Hierarchy of 
+Needs he established. The bottom 
+level focuses on survival, the middle 
 level focuses on social life, and 
 the top level focuses on the 
 individual. The bottom must be 
@@ -472,7 +472,7 @@ Problem and the Knapsack Problem. There
 are a set of destinations to travel for 
 making exchanges. There are traps 
 scattered throughout the places I 
-travel. The traps are evaded, not 
+travel. The traps are evaded, not to be 
 confronted. There are items I need to 
 acquire and carry for survival and 
 distribution. There are storage sites 
@@ -499,7 +499,7 @@ tactics are proactive, not reactive.
              steady effort a moment 
              ago. This morality 
              shows up to find out 
-             how to come correctly. 
+             how to come correct. 
 3. Spiritual: Glow is Go. If it 
               gives you a glow, 
               use it to give you a 
