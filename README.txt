@@ -532,8 +532,8 @@ The central constitutional
 proposition is that sovereignty is 
 achieved by conduct. 
 
-The document therefore attempts to 
-demonstrate a sovereignty before 
+The lost document therefore attempts 
+to demonstrate a sovereignty before 
 formally explaining or judging it. 
 
 The conduct makes the system 
@@ -549,9 +549,10 @@ enacted.
 sensations preceding the minimal 
 interpretations that produce what 
 is ordinarily called "objectivity." 
-The words of the book are raw sensual 
-experiences dressed in analytical yet 
-poetic interpretations: analysis and 
+The words of the document are raw 
+sensual experiences dressed in 
+analytical yet poetic 
+interpretations: analysis and 
 poetry are both pattern-seeking 
 disciplines. 
 
