@@ -115,7 +115,8 @@ A thought happens when .it. wants to,
 not when I want it. The closest 
 experience I'm abused by daily, 
 thoughts, are a stranger. I do not 
-know the who of my thinking. This 
+know the who of my thinking. I cannot 
+tell where thoughts come from. This 
 strikes fear into my authenticity. 
 I'll use silence, chanting, or humming 
 to cope: to overload my mind until some 
