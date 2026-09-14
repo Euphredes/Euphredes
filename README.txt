@@ -67,8 +67,8 @@ haven't seen day one of work, yet.
 
            Industrial 
 
-These other men build you tools: car, 
-phone, home. The industrial build you 
+Others build you tools: car, phone, 
+home. The industrial build you 
 places: town, city, state. 
 
 Ruben tells me to warehouse all 
@@ -405,7 +405,7 @@ City
 
            Tour 
 
-This text is two-story. Belowdeck 
+This Ship is two-story. Belowdeck 
 has four rooms, starting with AUTHORITY 
 and ending with BOUNTIFUL. I just gave 
 you, reader, a tour of the topdeck of 
