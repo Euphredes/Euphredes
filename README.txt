@@ -42,7 +42,9 @@ haven't seen day one of work, yet.
 
            Industrial 
 
-
+These other men build you tools: car, 
+phone, home. The industrial build you 
+places: town, city, state. 
 
 Ruben tells me to warehouse to 
 distribute all resources to 
@@ -56,6 +58,14 @@ He tells me language itself is
 playing games on knowledge. 
 
            Perhaps 
+
+Doers of the dangerous perhaps. The 
+Masses drift. They no longer take myth 
+nor Religion seriously enough. They no 
+longer take the best stories of all 
+time seriously enough. The storytellers 
+step aside. The linguists take center 
+stage. 
 
            Tear 
 
@@ -225,6 +235,22 @@ see how she deals with .it.?
 
            Smoke 
 
+smoke on the water, 
+and it tells me: 
+to breathe easy 
+for awhile. 
+seeing gets harder. 
+even I 
+know 
+that. 
+make room for me. 
+it's too soon to see, 
+if I'm happy in your lands. 
+unusually, 
+these feet 
+find 
+counties. 
+
            Death 
 
 When a person is facing death, all 
@@ -237,13 +263,75 @@ person's bounty.
 
            Fleet 
 
+A Sovereign Ship means worse than the 
+death of a man. It is a laborers union: 
+a heist. 
+
+Inside with: the white man made this: 
+the founding fathers of America and 
+Henry Ford. Mass communication is no 
+excuse for not using what we know from 
+World War II systems: communications, 
+logistics, and operations. Information 
+flow must actually trigger the 
+required material flow to places such 
+that the people and things of each 
+place sustain and advance, without 
+such material flow being anything 
+more than a responsible import of 
+resources to places. 
+
+Like Mr. Ford, my name is not signed 
+on the Declaration of Indpendence. 
+Anyone whose name isn't signed, 
+methinks, is not in the set: We The 
+People. That! makes a canidate for 
+having a Sovereign Ship. 
+
+Like Mr. Ford, I conduct a work study 
+on my Ship: I find out enough examples, 
+enough events from the groundfloor 
+where labor happens, and find my 
+sufficient success rate: I survive by 
+radical self-reliance: a thoreaubred 
+without the family supporting the 
+stay I don't afford at Walden or any 
+site really: a fordist that will take 
+zero bankers and stakeholders into my 
+Ship: criminal independence: 
+independence that endures as it 
+disrespects the dollar bill and common 
+law: a test of independence: to be 
+significant in the absence of other 
+parts from Maslow's Pyramid, because 
+I can go on without using them. When 
+my Ship is significant with minimal 
+ties of support, it is Sovereign. 
+
            Oracle 
 
            Tablelegs 
 
            Tabletop 
 
+City 
+    Boston     Cape 
+          is_1     is_2
+    Newport     ... 
+           is_3    ... 
+               .
+               . 
+               . 
+     Wilmington     Baltimore 
+               is_k          is_l 
+
            Tour 
+
+This text is two-story. The first floor 
+has four rooms, starting with AUTHORITY 
+and ending with BOUNTIFUL. I just gave 
+you, reader, a tour of the top floor of 
+my Ship. Walk downstairs. 
 
            Foot 
 
