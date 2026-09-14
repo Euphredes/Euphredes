@@ -368,6 +368,25 @@ I can go on without using them. When
 my Ship is significant with minimal 
 ties of support, it is Sovereign. 
 
+A Fleets evasive coersion will strike 
+down the hands stockpiling resources 
+with what they fear most: embarrassment. 
+As a Fleet operating with maximal 
+self-reliance, we will force collusion 
+to pool resources into one grand bank. 
+Better than the federal reserve. You 
+see, reader, space is more valuable 
+than money. A product that fails to 
+sell takes up space for products that 
+do sell. Porrr inventory mangement 
+loses more sales than anyone would 
+ever want to calculate. That! spurs 
+a national warehouse sewty to 
+distribution, not hold, resources. 
+This would surely bring forth 
+innovation unseen before by the 
+people of this land. 
+
            Oracle 
 
 Man has AI: the talking database. Data 
