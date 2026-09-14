@@ -121,14 +121,14 @@ strikes fear into my authenticity.
 I'll use silence, chanting, or humming 
 to cope: to overload my mind until some 
 reaction within me, that is strong 
-enough, breaks thorugh my self-imposed 
+enough, breaks through my self-imposed 
 monotony. That reaction is a choice 
 for me to do something with or not. 
 I feel like a gambler with a stranger, 
 who I've been closest to, gambling 
 over my life and death. 
 
-.it., this monster goes by many names. 
+.it., this mystery goes by many names. 
 Perhaps you too, reader, call .it. 
 something different than: ego. But who 
 would want to deal with such a dangerous 
@@ -148,7 +148,7 @@ is strange to. So far removed from
 society's duties, no one else should 
 pity such a detour. There! inwardly 
 and outwardly, is where and when I 
-find myself contending with this monster 
+find myself contending with this mystery 
 Nietzsche tells me of: all that 
 is left of the famous, owld .it. I 
 lay claim to .it., knowing I am not 
@@ -250,8 +250,7 @@ wants to start a cult.
 
 Wind: 
 this hunt for answers. 
-they keep falling out 
-onto the ground. 
+they keep finding the ground. 
 she is the only answer. 
 focus on her. 
 her hands. 
@@ -377,7 +376,7 @@ data handlers. Data mining is a heist
 by people. Man is fated to immortality: 
 to walk a sure plan, so slow, it 
 secures itself from unforseen 
-obstabcles. 
+obstacles. 
 
            Tablelegs 
 
