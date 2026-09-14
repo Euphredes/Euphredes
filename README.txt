@@ -243,11 +243,12 @@ were blue eyes once upon a time.
 
 New England. This is a traitor's title. 
 Mr. Washington and Company tell me 
-England is too incompetent. I call for 
-a Fleet: for an American Epic: sail 
-the roads of business, as all concrete 
-roads are meant for people of business: 
-to move an idea with at least two legs. 
+England is too incompetent. I motion for 
+a Fleet: reader, second this motion: for 
+an American Epic: sail the roads of 
+business, as all concrete roads are 
+meant for people of business: to move 
+an idea with at least two legs. 
 
            Sail 
 
