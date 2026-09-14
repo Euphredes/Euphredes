@@ -69,7 +69,14 @@ stage.
 
            Tear 
 
-           Migration 
+A poet's tears become bullets when they 
+freeze. You see, reader, when I take 
+from a book, I open it up randomly to 
+catch where the paws of my sight have 
+landed upright on a set of words. 
+
+Phaedrah tells me she shed a tear after 
+reading Moby Dick. 
 
            Boston 
 
@@ -208,12 +215,26 @@ they keep falling out
 onto the ground. 
 she is the only answer. 
 focus on her. 
-it is her time, 
+her hands. 
+her lips. 
+her time, 
 Herstory. 
 
            Walnut 
 
+My heist in a Walnut. That witch to 
+bond with is mine. These green roses 
+were blue eyes once upon a time. 
+
            Mutany 
+
+New England. This is a traitor's title. 
+Mr. Washington and Company tell me 
+England is too incompetent. I call for 
+a Fleet: for an American Epic: sail 
+the roads of business, as all concrete 
+roads are meant for people of business: 
+to move an idea with at least two legs. 
 
            Sail 
 
@@ -268,7 +289,7 @@ death of a man. It is a laborers union:
 a heist. 
 
 Inside with: the white man made this: 
-the founding fathers of America and 
+the Founding Fathers of America and 
 Henry Ford. Mass communication is no 
 excuse for not using what we know from 
 World War II systems: communications, 
@@ -312,6 +333,16 @@ ties of support, it is Sovereign.
 
            Tablelegs 
 
+From Mr. Ford: 
+1. Labor is the fundamental of 
+   economics. 
+2. Speculation is not business. 
+3. To grow, to make, to move: the 
+   domains of business. 
+4. Higher quality at lower cost with 
+   less parts, done longer, maximizes 
+   demand from people. 
+
            Tabletop 
 
 City 
@@ -335,7 +366,31 @@ my Ship. Walk downstairs.
 
            Foot 
 
+Take a right at the foot of the steps. 
+You will find each room is a library. I 
+will not overwhelm you with 
+storytelling. The short stories are like 
+gadgets and gizmos. The encyclopedias 
+offer provoking definitions. These are 
+like parts: clay, cogs, etc. 
 
+Like my Table upstairs from Mr. Ford, do 
+not touch my Tables from Nietzsche and 
+Ireland. 
+
+I did not mean to scare you with my 
+Oracle from Apollo. I got some free 
+advice from a veteran one time. It 
+afforded me insight. 
+
+Be wary of just one book, Phaedrah. It 
+is the least controlled, as it is meant 
+as an ore desposit for the witch. 
+
+In rooms, I'll offer books covering 
+linguistic demonstrations. I'll reveal 
+some procedures and plans. The first 
+room I'll show you is the most serious. 
 
 
 
