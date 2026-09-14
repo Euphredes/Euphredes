@@ -36,9 +36,24 @@ BOUNTIFUL
 
            Policy 
 
+Policy is ritual. Company books 
+unread. These blindfolded employees 
+haven't seen day one of work, yet. 
+
            Industrial 
 
+
+
+Ruben tells me to warehouse to 
+distribute all resources to 
+maximize Mass consumer satisfaction. 
+
            Cannon 
+
+Ludwig tells me .
+
+He tells me language itself is 
+playing games on knowledge. 
 
            Perhaps 
 
@@ -139,6 +154,16 @@ stone for one's next move.
 
            Compass 
 
+One mystery is the feeling of another 
+person sharing your mind and body. 
+When this duality is compatible, 
+there is a resonance which is 
+euphoric. To capture this feeling 
+with my attention, without 
+distractions, is to capture the wisp. 
+Any distraction fumbles my handle on 
+the mystery. 
+
            Witch 
 
 Spirit: 
@@ -147,17 +172,25 @@ just me and my thoughts.
 just me and her. 
 just her. 
 
+Water: 
 communication and touch. 
 waiting for the moon. 
 smoke and drink on the ground. 
 look only inward. 
-
-Water: 
 I just need to be held. 
 around her, 
 I melt 
 yet stay contained. 
 I am her cup of water. 
+
+Fire: 
+Euphoria in my skin like a 
+breeze in my veins when 
+she's nearby. 
+
+Earth: 
+Phaedrah tells me she 
+wants to start a cult. 
 
 Wind: 
 this hunt for answers. 
@@ -174,7 +207,21 @@ Herstory.
 
            Sail 
 
+flower in the breeze. 
+docked on top of waves. 
+shoulders sway when I stand. 
+feet troll the ground I walk. 
+hands pick up my trapnotes. 
+the game warden passes by. 
+
            Sailors 
+
+come hear, 
+that one there's 
+not talking to himself: 
+not even a little bit. 
+then look over there: 
+see how she deals with .it.? 
 
            Smoke 
 
@@ -192,17 +239,24 @@ person's bounty.
 
            Oracle 
 
-
            Tablelegs 
-
 
            Tabletop 
 
-
            Tour 
 
-
            Foot 
+
+
+
+
+
+
+
+
+
+
+
 
            Introduction 
            ------------ 
@@ -487,7 +541,7 @@ Pipeline
            Contents 
 
 Introduction 
-Automatic 
+Spirit 
 Chess 
 Circles 
 Snake 
@@ -514,9 +568,9 @@ Wall
 
 Introduction 
 Table 
-Heist 
-Square 
-Map 
+Mix 
+Stove 
+Bricks 
 
            ---------- 
            Euphredes: 
