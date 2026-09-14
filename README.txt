@@ -34,7 +34,7 @@ BOUNTIFUL
            Deck 
            ---- 
 
-           Hey 
+           (Reader) 
 
 Hey man. 
 (What's good.) 
@@ -49,7 +49,7 @@ Nah, I've never seen your face.
 Yeah. 
 (What's up with your deck?) 
 
-           Weed 
+           (Weed) 
 
 (Take a longass drag of this.) 
 Good looks. 
