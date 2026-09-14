@@ -456,13 +456,13 @@ established first, then the middle,
 and finally the top need can be 
 achieved: the crown jewel: the eye 
 on the pyramid of the dollar bill: 
-I see I am such, I feel so, others 
-see such, and others don't stop 
-such. 
+I see that I am such, I feel so, 
+others see such, and others don't 
+stop such. 
 
 Survival needs and social obligations 
-are the tolls I will not pay until I 
-take a crown for myself, using my 
+are the tolls I will not pay for until 
+I take a crown for myself, using my 
 Ship. Well, that makes for a heist. 
 
            Approach 
@@ -487,24 +487,24 @@ tactics are proactive, not reactive.
 
            Responsibilities 
 
-My responsibilities are simple: 
-1. Mental. 
-2. Physical. 
-3. Spiritual. 
-
-Details: 
-1. Silence is King. There is no 
-   diagnosis for being quiet. 
-2. Momentum is Moral. It is easier to 
-   keep going 55 MPH when one has 
-   already been going such a speed. 
-   The new effort is all that one 
-   really feels when one has steady 
-   effort a moment ago. This morality 
-   shows up to find out how to come 
-   correctly. 
-3. Glow is Go. If it gives you a glow, 
-   use it to give you a go. 
+1. Mental: Silence is King. There is 
+           no diagnosis for being 
+           quiet. 
+2. Physical: Momentum is Moral. It is 
+             easier to keep going 
+             fifty MPH when one has 
+             already been going such 
+             a speed. The new effort 
+             is all that one really 
+             feels when one has 
+             steady effort a moment 
+             ago. This morality 
+             shows up to find out 
+             how to come correctly. 
+3. Spiritual: Glow is Go. If it 
+              gives you a glow, 
+              use it to give you a 
+              go. 
 
 
            AUTHORITY 
