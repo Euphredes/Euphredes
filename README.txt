@@ -52,10 +52,12 @@ maximize Mass consumer satisfaction.
 
            Cannon 
 
-Ludwig tells me .
-
-He tells me language itself is 
-playing games on knowledge. 
+Ludwig tells me only poets are meant to 
+speak. He tells me language itself is 
+playing games on knowledge. Let this 
+Yankee Doodle Dandy. The pen scripts 
+swordplay. What irishmanhood leads the 
+dance? 
 
            Perhaps 
 
@@ -79,6 +81,8 @@ Phaedrah tells me she shed a tear after
 reading Moby Dick. 
 
            Boston 
+
+He's just passing through, chill. 
 
            Sea 
 
@@ -123,6 +127,15 @@ Nietzsche tells me of: all that
 is left of the famous, owld .it. I 
 lay claim to .it., knowing I am not 
 .it. 
+
+Emerson tells me of a circle. If myself 
+and another person shared same exact 
+slices from the circ;le, we would be the 
+same person inwardly. History's 
+escavation of that circle is knowledge 
+by one name. Such a circle is what 
+remains of .it. That is, the remains of 
+where .it. can reside. 
 
            Map 
 
@@ -330,6 +343,14 @@ my Ship is significant with minimal
 ties of support, it is Sovereign. 
 
            Oracle 
+
+Man has AI: the talking database. Data 
+from homebases not collected by these 
+data handlers. Data mining is a heist 
+by people. Man is fated to immortality: 
+to walk a sure plan, so slow, it 
+secures itself from unforseen 
+obstabcles. 
 
            Tablelegs 
 
