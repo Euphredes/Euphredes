@@ -40,13 +40,24 @@ Hey man.
 (What's good.) 
 
 Checking my traps over in the cove. 
-(You the one that took my cigarette on the dock.) 
+(You the one that took my cigarette on 
+ the dock.) 
 
 Nah, I've never seen your face. 
 (You got a cigarette?) 
 
 Yeah. 
 (What's up with your deck?) 
+
+           Weed 
+
+(Take a longass drag of this.) 
+Good looks. 
+
+So, I'm a poet. Aside from jug 
+ fishing. Belowdeck is my writer's 
+ lab. 
+(Tell me some of it). 
 
            Policy 
 
