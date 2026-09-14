@@ -510,11 +510,10 @@ tactics are proactive, not reactive.
            A PHILOSOPHY 
 
 
-           --------------------- 
+           -------------------- 
            Greanleaf: 
-           A Practice. 
-           A Book for Fugitives. 
-           --------------------- 
+           A Book for Fugitives 
+           -------------------- 
 
            Contents 
 
