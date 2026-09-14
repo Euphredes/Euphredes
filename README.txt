@@ -157,7 +157,7 @@ Emerson tells me of a circle. If myself
 and another person shared same exact 
 slices from the circle, we would be the 
 same person inwardly. History's 
-escavation of that circle is knowledge 
+excavation of that circle is knowledge 
 by one name. Such a circle is what 
 remains of .it. That is, the remains of 
 where .it. can reside. 
