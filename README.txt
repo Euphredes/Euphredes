@@ -436,7 +436,14 @@ established first, then the middle,
 and finally the top need can be 
 acheived: the crown jewel: the eye 
 on the pyramid of the dollar bill: 
-I am such and no one can stop that. 
+I see I am such, I feel so, others 
+see such, and others don't stop 
+such. 
+
+Survival needs and social obligations 
+are the tolls I will not pay until I 
+take a crown for myself, using my 
+Ship. Well, that makes for a heist. 
 
            Approach 
 
