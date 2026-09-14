@@ -526,7 +526,7 @@ Mystery
            Introduction 
            ------------ 
 
-           Criminal 
+           Fugitive 
 
 The central constitutional 
 proposition is that sovereignty is 
@@ -643,7 +643,6 @@ alone.
 
            Schoolmanship 
 
-VII. 
 Central Catholic Highschool in 
  Lawrence Massachusetts. 
 Rochester Institute of Technology in 
@@ -657,11 +656,10 @@ Student of Henry David Thoreau to
  demonstrate walking life without 
  income as some sort of crusade. 
 Lover of Emily Dickinson to find 
- out about Mystical Experiences. 
+ out about mysterious experiences. 
 
            Workmanship 
 
-VIII. 
 Continuous Improvement Engineer 
  (Intern) at JMA Wireless in 
  Liverpool New York. 
@@ -691,7 +689,7 @@ Digital Creator of mixtapes on
  Sovereignty. 
 Walker of thirty-six counties in 
  America to discipline my mind,  
- foster my Mysticism, and deliver 
+ foster my mysteries, and deliver 
  artifacts of how I think and feel to 
  assert: labor independently justifies 
  labor economics, which yields 
@@ -700,7 +698,6 @@ Walker of thirty-six counties in
 
            Detention 
 
-IX. 
 Ten psychiatric inpatient admissions 
  across Massachusetts, Connecticut, 
  New York, New Jersey, Pennsylvania, 
@@ -714,7 +711,6 @@ Middleton Correctional Facility in
 
            Programs 
 
-X. 
 Two halfway houses in Boston 
  Massachusetts. 
 An additional sixteen recovery 
@@ -776,7 +772,7 @@ Incarcerated in Middleton Correctional
 Third time outside: Danvers Massachusetts 
  to Baltimore Maryland, then Edgewood 
  Maryland to Philadelphia Pennsylvania. 
-Nashua spellwork: The starting point is 
+Nashua ritualwork: The starting point is 
  my problem with the Haverhill Masonic 
  Lodge in Massachusetts, and the ending 
  point is Philadelphia Liberty in 
