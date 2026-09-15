@@ -47,7 +47,7 @@ I've never seen your face.
 (You got a cigarette?) 
 
 Yeah. 
-(What's up with your deck?) 
+(What's up with your deck.) 
 
            Weed 
 
