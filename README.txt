@@ -19,7 +19,7 @@ Licensing: Content in this text file
            International license. 
 Author: Nick Morris. 
 Age: 33 Years Old. 
-Release: Monday, September 14th 2026. 
+Release: Tuesday, September 15th 2026. 
 Location: Philadelphia, PA. 
 
            ----- 
