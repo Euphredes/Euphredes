@@ -7,10 +7,6 @@
            A BOOK FOR THE EVASIVE 
 
 
-           MIDDLE CHILD 
-           WITH J. COLE 
-
-
            Publishing 
 
 Licensing: Content in this text file 
