@@ -1541,10 +1541,10 @@ Chess
 Circles 
 Snake 
 
-           -------- 
+           ----------------- 
            Fighter: 
-           An Asset 
-           -------- 
+           A Book for Assets 
+           ----------------- 
 
            Contents 
 
