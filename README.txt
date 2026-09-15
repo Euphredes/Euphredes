@@ -1555,7 +1555,7 @@ Snake
 Introduction 
 Walkaway 
 Headlock 
-Brawl 
+Fury 
 Wall 
 
            Introduction 
@@ -1609,8 +1609,8 @@ headlock. Underly, well, I am
 not the stepson of an abusive 
 stepfather in this. 
 
-           Brawl 
-           ----- 
+           Fury 
+           ---- 
 
            Elbow 
 
