@@ -28,15 +28,15 @@ Location: Philadelphia, PA.
 
            Contents 
 
-Deck 
+Topeck 
 Belowdeck 
 AUTHORITY 
 MYSTERY 
 UNDERGROUND 
 BOUNTIFUL 
 
-           Deck 
-           ---- 
+           Topdeck 
+           ------- 
 
            (Reader) 
 
