@@ -29,7 +29,7 @@ Location: Philadelphia, PA.
            Contents 
 
 Deck 
-Introduction 
+Belowdeck 
 AUTHORITY 
 MYSTERY 
 RESTORATION 
@@ -522,8 +522,8 @@ linguistic demonstrations. I'll reveal
 some procedures and plans. The first 
 room, AUTHORITY, is the most serious. 
 
-           Introduction 
-           ------------ 
+           Belowdeck 
+           --------- 
 
            Storyline 
 
