@@ -607,6 +607,14 @@ Mystery
 
            Fugitive 
 
+I am a fugitive to the judicial 
+system. An example of one artifact in 
+my underground library is a document 
+that I deposited into AI. The 
+remaining words in Fugitive are from 
+AI. I requested for AI to give me a 
+summary of the document: 
+
 The central constitutional 
 proposition is that sovereignty is 
 achieved by conduct. 
@@ -927,10 +935,10 @@ in the breeze.
 I leave things behind as an exchange 
 system. 
 
-           ------------- 
+           ---------------- 
            J.G.: 
-           A Sovereignty 
-           ------------- 
+           A Book for Cults 
+           ---------------- 
 
            Contents 
 
@@ -940,10 +948,10 @@ Virtues
 Initiation 
 Geometry 
 
-           ------------ 
+           ------------------ 
            R.I.T. 
-           A Discipline 
-           ------------ 
+           A Book for Science 
+           ------------------ 
 
            Contents 
 
@@ -953,10 +961,10 @@ Sophomore
 Deans 
 PhD 
 
-           ------------- 
+           ----------------------- 
            Pirate: 
-           A Distributor 
-           ------------- 
+           A Book for the Homeless 
+           ----------------------- 
 
            Contents 
 
@@ -1384,10 +1392,10 @@ although blame is
 this happens, 
 she is there. 
 
-           -------------- 
+           ------------------------- 
            Walden: 
-           First Quarters 
-           -------------- 
+           Phaedrah's First Dominion 
+           ------------------------- 
 
            Contents 
 
@@ -1397,10 +1405,10 @@ Walks
 Sites 
 Triangle 
 
-           --------------- 
+           -------------------------- 
            Bridgewater: 
-           Second Quarters 
-           --------------- 
+           Phaedrah's Second Dominion 
+           -------------------------- 
 
            Contents 
 
@@ -1410,10 +1418,10 @@ Walks
 Sites 
 Triangle 
 
-           -------------- 
+           ------------------------- 
            Hudson: 
-           Third Quarters 
-           -------------- 
+           Phaedrah's Third Dominion 
+           ------------------------- 
 
            Contents 
 
@@ -1423,10 +1431,10 @@ Walks
 Sites 
 Triangle 
 
-           --------------- 
+           -------------------------- 
            Delaware: 
-           Fourth Quarters 
-           --------------- 
+           Phaedrah's Fourth Dominion 
+           -------------------------- 
 
            Contents 
 
@@ -1436,10 +1444,10 @@ Walks
 Sites 
 Triangle 
 
-           -------------- 
+           ------------------------- 
            Chesapeake: 
-           Fifth Quarters 
-           -------------- 
+           Phaedrah's Fifth Dominion 
+           ------------------------- 
 
            Contents 
 
@@ -1537,10 +1545,10 @@ Chess
 Circles 
 Snake 
 
-           ----------------- 
+           -------- 
            Fighter: 
-           A Book for Assets 
-           ----------------- 
+           An Asset 
+           -------- 
 
            Contents 
 
