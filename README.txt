@@ -949,7 +949,7 @@ Initiation
 Geometry 
 
            ------------------ 
-           R.I.T. 
+           R.I.T.: 
            A Book for Science 
            ------------------ 
 
