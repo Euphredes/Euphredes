@@ -57,7 +57,7 @@ Good looks.
 So, I'm a poet. Aside from jug 
  fishing. Belowdeck is my writer's 
  lab. 
-(Show me some of it). 
+(Show me some of it.) 
 
            Policy 
 
