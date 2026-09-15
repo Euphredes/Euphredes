@@ -7,6 +7,10 @@
            A BOOK FOR THE EVASIVE 
 
 
+           MIDDLE CHILD 
+           A MOOD FOR THE READER 
+
+
            Publishing 
 
 Licensing: Content in this text file 
@@ -122,11 +126,11 @@ I'll use silence, chanting, or humming
 to cope: to overload my mind until some 
 reaction within me, that is strong 
 enough, breaks through my self-imposed 
-monotony. That reaction is a choice 
-for me to do something with or not. 
-I feel like a gambler with a stranger, 
-who I've been closest to, gambling 
-over my life and death. 
+monotony: a straitjacket. That reaction 
+is a choice for me to do something with 
+or not. I feel like a gambler with a 
+stranger, who I've been closest to, 
+gambling over my life and death. 
 
 .it., this mystery goes by many names. 
 Perhaps you too, reader, call .it. 
@@ -611,9 +615,10 @@ The central constitutional
 proposition is that sovereignty is 
 achieved by conduct. 
 
-The lost document therefore attempts 
-to demonstrate a sovereignty before 
-formally explaining or judging it. 
+The deposited document therefore 
+attempts to demonstrate a sovereignty 
+before formally explaining or judging 
+it. 
 
 The conduct makes the system 
 operational on the physical ground 
@@ -771,9 +776,9 @@ Walker of thirty-six counties in
  foster my mysteries, and deliver 
  artifacts of how I think and feel to 
  assert: labor independently justifies 
- labor economics, which yields 
- Greanleaf practices as contribution 
- to America's economics. 
+ economics, which yields Greanleaf 
+ practices as contribution to 
+ America's economics. 
 
            Detention 
 
