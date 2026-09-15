@@ -608,12 +608,12 @@ Mystery
            Fugitive 
 
 I am a fugitive to the judicial 
-system. An example of one artifact in 
-my underground library is a document 
-that I deposited into AI. The 
-remaining words of this Introduction 
-are from AI. I requested for AI to 
-give me a summary of the document: 
+system. One artifact in my underground 
+library is a document that I deposited 
+into AI. The remaining words of this 
+Introduction are from AI. I requested 
+for AI to give me a summary of the 
+document: 
 
 The central constitutional 
 proposition is that sovereignty is 
