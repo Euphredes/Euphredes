@@ -8,7 +8,7 @@
 
 
            MIDDLE CHILD 
-           A MOOD FOR THE READER 
+           WITH J. COLE 
 
 
            Publishing 
@@ -38,7 +38,7 @@ BOUNTIFUL
            Topdeck 
            ------- 
 
-           (Reader) 
+           Cole 
 
 Hey man. 
 (What's good.) 
@@ -101,7 +101,7 @@ stage.
            Tears 
 
 A poet's tears become bullets when they 
-freeze. You see, reader, when I take 
+freeze. You see, Mr. Cole, when I take 
 from a book, I open it up randomly to 
 catch where the paws of my sight have 
 landed upright on a set of words. 
@@ -133,7 +133,7 @@ stranger, who I've been closest to,
 gambling over my life and death. 
 
 .it., this mystery goes by many names. 
-Perhaps you too, reader, call .it. 
+Perhaps you too, Mr. Cole, call .it. 
 something different than: ego. But who 
 would want to deal with such a dangerous 
 perhaps? Who would want to admit to 
@@ -284,7 +284,7 @@ A throne is a table for two.
 New England. That is a traitor's title. 
 Mr. Washington and Company tell me 
 England is too incompetent. I motion for 
-a Fleet: reader, second this motion: for 
+a Fleet: Mr. Cole, second this motion: for 
 an American Epic: sail the roads of 
 business, as all concrete roads are 
 meant for people of business: to move 
@@ -390,7 +390,7 @@ embarrassment. As a Fleet operating with
 maximal self-reliance, we will force 
 collusion to pool resources into one 
 Grand Bank. Better than the Federal 
-Reserve. You see, reader, space is more 
+Reserve. You see, Mr. Cole, space is more 
 valuable than money. A product that fails 
 to sell takes up space for products that 
 do sell. Poor inventory mangement 
@@ -456,7 +456,7 @@ Delaware.
            Money 
 
 Dead people have more time on the same 
-money you claim is earned by you, reader. 
+money you claim is earned by you, Mr. Cole. 
 Money is a hand-me-down. The circulation 
 of money belongs more to those who 
 circulated and worked with it before you. 
@@ -491,7 +491,7 @@ I'm in.
 This Ship is two-story. Belowdeck 
 has four rooms, starting with AUTHORITY 
 and ending with BOUNTIFUL. I just gave 
-you, reader, a tour of the topdeck of 
+you, Mr. Cole, a tour of the topdeck of 
 my Ship. Walk downstairs. 
 
            Foot 
