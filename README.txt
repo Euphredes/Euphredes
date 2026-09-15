@@ -264,6 +264,17 @@ My heist in a Walnut. That witch to
 bond with is mine. These green roses 
 were blue eyes once upon a time. 
 
+           Knots 
+
+The nautical miles are covered by 
+conversation with the witch. It can be 
+done over a game of lake dice. How 
+well do I talk to her and just her? 
+focused on only her. Keep rolling. 
+Keep score. As the score increases, 
+make progress in talking to just her. 
+A throne is a table for two. 
+
            Mutany 
 
 New England. That is a traitor's title. 
@@ -370,14 +381,14 @@ ties of support, it is Sovereign.
 
 A Fleet's evasive coersions will strike 
 down the hands stockpiling resources 
-with what they fear most: embarrassment. 
-As a Fleet operating with maximal 
-self-reliance, we will force collusion 
-to pool resources into one grand bank. 
-Better than the Federal Reserve. You 
-see, reader, space is more valuable 
-than money. A product that fails to 
-sell takes up space for products that 
+with what those hands fear most: 
+embarrassment. As a Fleet operating with 
+maximal self-reliance, we will force 
+collusion to pool resources into one 
+Grand Bank. Better than the Federal 
+Reserve. You see, reader, space is more 
+valuable than money. A product that fails 
+to sell takes up space for products that 
 do sell. Poor inventory mangement 
 loses more sales than anyone would 
 ever want to calculate. That! spurs 
@@ -424,6 +435,52 @@ City
                . 
      Wilmington     Baltimore 
                is_k          is_l 
+
+           Whiteman 
+
+Mr. Washington and Company cross a river 
+and claim it is called what we call it 
+today: 
+Dock. 
+Hell. 
+Where. 
+Aware. 
+That's contains the before, during, and 
+after they got there. It is called the 
+Delaware. 
+
+           Money 
+
+Dead people have more time on the same 
+money you claim is earned by you, reader. 
+Money is a hand-me-down. The circulation 
+of money belongs more to those who 
+circulated and worked with it before you. 
+Look what was made before you. 
+
+I don't have a job. I don't play around 
+in what was already made for me, like I 
+have something. I make a secure network, 
+and leave it behind. Whenever I return 
+to a spot I made and it's unchanged, 
+methinks, that is mine. 
+
+           Underground 
+
+A network of things gets respect from 
+people. I have book deposits from 
+Maine to Maryland. Underground 
+library. Deposits holed up like 
+treasure chests. Cold campsites to and 
+from spots. Such word is currency. 
+When I recall these words: my bank 
+notes. 
+
+           Initiation 
+
+throw a cigarette in the Delaware. 
+Mr. Washington calls it my Ship. 
+I'm in. 
 
            Tour 
 
@@ -913,10 +970,10 @@ Chesapeake
            A SPIRITUALITY 
 
 
-           --------- 
+           ------------------ 
            Phaedrah: 
-           A Partner 
-           --------- 
+           A Book for Thrones 
+           ------------------ 
 
            Contents 
 
