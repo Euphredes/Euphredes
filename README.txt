@@ -517,12 +517,14 @@ State
            Whiteman 
 
 Mr. Washington and Company cross a river 
-and claim it is called what we call it 
-today: 
+for the first time, and claim it's name 
+is what we still call it, today. 
+
 Dock. 
 Hell. 
 Where. 
 Aware. 
+
 That's contains the before, during, and 
 after they got there. It is called the 
 Delaware. 
@@ -717,17 +719,17 @@ Mystery
 
 I am a fugitive to the judicial 
 system. One artifact in my underground 
-library is a document that I deposited 
+library is a book that I deposited 
 into AI. The remaining words of this 
 Introduction are from AI. I requested 
 for AI to give me a summary of the 
-document: 
+book: 
 
 The central constitutional 
-proposition is that sovereignty is 
-achieved by conduct. 
+proposition of this book is that 
+sovereignty is achieved by conduct. 
 
-The deposited document therefore 
+The deposited book therefore 
 attempts to demonstrate a sovereignty 
 before formally explaining or judging 
 it. 
@@ -745,7 +747,7 @@ enacted.
 sensations preceding the minimal 
 interpretations that produce what 
 is ordinarily called "objectivity." 
-The words of the document are raw 
+The words of the book are raw 
 sensual experiences dressed in 
 analytical yet poetic 
 interpretations: analysis and 
@@ -967,7 +969,7 @@ Incarcerated in Middleton Correctional
  Facility in Massachusetts. 
 Third time outside: Danvers Massachusetts 
  to Baltimore Maryland, then Edgewood 
- Maryland to Philadelphia Pennsylvania. 
+ Maryland to Camden County New Jersey. 
 Nashua ritualwork: The starting point is 
  my problem with the Haverhill Masonic 
  Lodge in Massachusetts, and the ending 
