@@ -213,7 +213,7 @@ and outwardly, is where and when I
 find myself contending with this mystery 
 Nietzsche tells me of: all that 
 is left of the famous, owld .it. I 
-lay claim to .it., knowing I am not 
+lay claim to .it.! knowing I am not 
 .it. 
 
 Emerson tells me of a circle. If myself 
