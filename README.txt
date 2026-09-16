@@ -924,7 +924,7 @@ Training Center of The Great Rock
 
            Militant 
 
-Logically, my practices everyday 
+Logically, Greanleaf practices everyday 
 yield a body-for-body exchange 
 system. In such a system, money is 
 not the exchange factor. It is my 
