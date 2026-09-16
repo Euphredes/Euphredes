@@ -4,12 +4,12 @@
            AN EPIC 
 
 
+           EUPHREDES 
+           AN ALEXANDRIAN SERVANT 
+
+
            SO YOU WANNA BE A WRITER 
            A MOOD FROM BUKOWSKI 
-
-
-           EUPHREDES 
-           ALEXANDRIAN SERVANT 
 
 
            A BOOK FOR THE EVASIVE 
@@ -144,7 +144,7 @@ Literate
 Literat 
 Litera 
 Literal.  
-There! 
+That one! 
 Mr. Cole, 
 be literal. 
 
@@ -1191,8 +1191,8 @@ into the atmosphere to be
 
 straight hair 
 of purple and silver. 
-opal in her nose. 
-energy in her pose. 
+opal in her lips. 
+energy when she's missed. 
 let her breathe more. 
 
 the hospital's best 
@@ -1218,7 +1218,7 @@ protect her from
 
 in the library, 
 each book is a wall 
-for her sanctuary. 
+for her security. 
 the topics overall 
 don't plant seeds 
 in her mind to become 
@@ -1361,7 +1361,7 @@ as the rest nevermores.
            Friends 
 
 wind down the river of the street, 
-the ghost of harmony sows streets. 
+the ghost of harmony sows blocks. 
 walk a large star to reap rewards. 
 
            Southward 
@@ -1369,7 +1369,7 @@ walk a large star to reap rewards.
 tremble in the gold heat midday, 
 sweat full of curls and wind-filled 
  eyes. 
-a cool spring's bank by the bottle.
+a cool spring's bank in the bottle. 
 
            Poet 
 
@@ -1377,7 +1377,7 @@ love, book and dice in my knapsack,
 twisting them like labyrinths inside. 
 asleep with echoes of writing. 
 
-           Diffuse 
+           Sublime 
 
 by the dead highway of winter, 
 the landscape with arms spread wide, 
@@ -1385,7 +1385,7 @@ the silence becomes the snow sphinx.
 
            Murals 
 
-cell 114 in lenox, 
+cell one-fourteen in lenox, 
 decorated with mental 
  art. 
 cradled by her, 
@@ -1420,7 +1420,7 @@ to other speakers,
 like a bird ruffles 
 his feathers. 
 
-           Drinker 
+           Giver 
 
 what lies dormant at a tear's core? 
 salt hydrates, water bears fruit. 
@@ -1430,7 +1430,7 @@ wind shapes a blade across my cheek.
 
 blues are reflected in the wind. 
 my hot heart, a crowd of breezes. 
-drooping trees in my mind sing songs. 
+drooping trees in my mind creak songs. 
 
            Statue 
 
@@ -1470,7 +1470,7 @@ there are seasons
 there is breathing 
  for all to go. 
 put her in my breath, 
-unto death. 
+unto my death. 
 feelings for her are 
  how I stroll. 
 
