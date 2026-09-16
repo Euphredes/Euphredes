@@ -729,16 +729,15 @@ library is a book that I deposited
 into AI. The remaining words of this 
 Introduction are from AI. I requested 
 for AI to give me a summary of the 
-book: 
+book, my book: Gambit: 
 
 The central constitutional 
-proposition of this book is that 
+proposition of Gambit is that 
 sovereignty is achieved by conduct. 
 
-The deposited book therefore 
-attempts to demonstrate a sovereignty 
-before formally explaining or judging 
-it. 
+Gambit therefore attempts to 
+demonstrate a sovereignty before 
+formally explaining or judging it. 
 
 The conduct makes the system 
 operational on the physical ground 
@@ -753,14 +752,14 @@ enacted.
 sensations preceding the minimal 
 interpretations that produce what 
 is ordinarily called "objectivity." 
-The words of the book are raw 
+The words of Gambit are raw 
 sensual experiences dressed in 
 analytical yet poetic 
 interpretations: analysis and 
 poetry are both pattern-seeking 
 disciplines. 
 
-The constitution is consequently 
+Gambit's constitution is consequently 
 understood as an articulation of 
 patterns that emerge from lived 
 conduct rather than an abstraction 
@@ -791,7 +790,7 @@ to live according to a system that
 makes self-government operational 
 in one's own life. 
 
-The constitution does not merely 
+Gambit's constitution does not merely 
 describe permissions. Its words are 
 descriptions of a system that has 
 been and continues to be performed. 
