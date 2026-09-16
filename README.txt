@@ -487,32 +487,32 @@ From Mr. Ford:
 
            Tabletop 
 
-State 
-     MA              RI 
-       liberal.        independent. 
-       surrounded by   too small to 
-       states which    get in the way. 
-       govern with 
-       leeway. 
-     CT              NY 
-       word.           advance. 
-       articulation    governance 
-       done well       cannot 
-       grants          distrub 
-       passage.        sustaining. 
-     NJ              PA 
-       noble.          love. 
-       surrounded by   to be 
-       relaxed         concerned 
-       states.         requires: to 
-                       care. 
-     DE              MD 
-       polished.       gatekeeper. 
-       like New        DC's 
-       Jersey,         entrance. 
-       surrounded by 
-       relaxed 
-       states. 
+States 
+      MA              RI 
+        liberal.        independent. 
+        surrounded by   too small to 
+        states which    get in the way. 
+        govern with 
+        leeway. 
+      CT              NY 
+        word.           advance. 
+        articulation    governance 
+        done well       cannot 
+        grants          distrub 
+        passage.        sustaining. 
+      NJ              PA 
+        noble.          love. 
+        surrounded by   to be 
+        relaxed         concerned 
+        states.         requires: to 
+                        care. 
+      DE              MD 
+        polished.       gatekeeper. 
+        like New        DC's 
+        Jersey,         entrance. 
+        surrounded by 
+        relaxed 
+        states. 
 
            Whiteman 
 
