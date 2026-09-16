@@ -79,6 +79,24 @@ So, I'm a poet. Aside from jug
  lab. 
 (Show me some of it.) 
 
+           Clarity 
+
+I rivertalk. I riverwalk. I riverwrite, 
+Mr. Cole. Fleet is coercing a riverman 
+into the shape of a Ship: a model to 
+live by, to see by, to feel by, to 
+getaway from other Ships, so one's Ship 
+belongs only to oneself. 
+
+           Wu 
+
+Mr. Cole, say a place had thirty-six 
+candles, all lit. You, Mr. Cole, not I, 
+could acheive this: blow out all 
+thirty-six candles: Wu! 
+
+That's tangible. 
+
            Toes 
 
 Jim tells me: ten toes down mean five 
