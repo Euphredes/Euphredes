@@ -53,9 +53,9 @@ Checking my traps over in the cove.
  the dock.) 
 
 I've never seen your face. 
-(You got a cigarette?) 
+(You got a cigarette.) 
 
-Yeah. 
+Yeah, I got you. 
 (What's up with your deck.) 
 
            Punched 
