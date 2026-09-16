@@ -140,10 +140,10 @@ satisfaction through distribution.
 
 Ludwig tells me only poets are meant to 
 speak. He tells me language itself is 
-playing games on knowledge. Let me 
-Yankee Doodle Dandy. The pen scripts 
-swordplay. What irishmanhood leads the 
-dance? 
+playing games on knowledge. You're next 
+in my Yankee Doodle Dandy, Mr. Cole. The 
+pen scripts swordplay. What irishmanhood 
+leads the dance? 
 
            Perhaps 
 
