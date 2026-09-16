@@ -397,8 +397,8 @@ person's bounty.
            Fleet 
 
 A Sovereign Ship means worse than the 
-death of a man. It is a laborers union: 
-a heist. 
+death of a man. It is a laborers union, 
+Mr. Cole: a heist. 
 
 Inside with: the white man made this: 
 the Founding Fathers of America and 
