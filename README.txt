@@ -1819,10 +1819,10 @@ Mix
 Stove 
 Bricks 
 
-           ---------- 
+           --------------------- 
            Euphredes: 
-           A Movie
-           ---------- 
+           A Book for Filmmakers 
+           --------------------- 
 
            Contents 
 
