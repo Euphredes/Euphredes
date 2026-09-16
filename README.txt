@@ -1733,6 +1733,15 @@ Bricks
 
 Introduction 
 Movie 
+Cole
+
+           Cole 
+
+(I said some.) 
+My bad. 
+
+I need a Ship. 
+(get the Ship.) 
 
            ***** 
             *** 
