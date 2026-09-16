@@ -92,6 +92,16 @@ live by, to see by, to feel by, to
 getaway from other Ships, so one's Ship 
 belongs only to oneself. 
 
+When these riverwords reach you, Mr. 
+Cole, you will not be surprised. That 
+makes you, Mr. Cole, fit for words from 
+Fleet by me, Nick Morris. 
+
+           Proverb 
+
+A Hip-Hop proverb: too many planters, 
+not enough seedlings. 
+
            Wu 
 
 Mr. Cole, say a place had thirty-six 
