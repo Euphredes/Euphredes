@@ -89,8 +89,8 @@ to one, next.
 Kierkegaard tells me Jesus is cool. I 
 tell you, Mr. Cole, such cool is Abraham 
 and Isaac wrapped into one. Nietzsche 
-tells me: something to die for doesn't 
-need defenders. 
+tells me: something to die for, it 
+doesn't require defenders. 
 
            Policy 
 
