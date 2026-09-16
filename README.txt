@@ -498,7 +498,7 @@ States
         word.           advance. 
         articulation    governance 
         done well       cannot 
-        grants          distrub 
+        grants          disturb 
         passage.        sustaining. 
       NJ              PA 
         noble.          love. 
