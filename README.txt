@@ -278,7 +278,7 @@ When this duality is compatible,
 there is a resonance which is 
 euphoric. To capture this feeling 
 with my attention, without 
-distractions, is to capture the wisp. 
+distractions, is to capture the Wisp. 
 Any distraction fumbles my handle on 
 the mystery. 
 
@@ -339,14 +339,14 @@ A throne is a table for two.
 
            Mutany 
 
-New England. That is a traitor's title. 
-Mr. Washington and Company tell me 
-England is too incompetent. I motion for 
-a Fleet: Mr. Cole, second this motion: for 
-an American Epic: sail the roads of 
-business, as all concrete roads are 
-meant for people of business: to move 
-an idea with at least two legs. 
+New England. That is a traitor's title, 
+Mr. Cole. Mr. Washington and Company 
+tell me England is too incompetent. I 
+motion for a Fleet: Mr. Cole, second 
+this motion: for an American Epic: sail 
+the roads of business, as all concrete 
+roads are meant for people of business: 
+to move an idea with at least two legs. 
 
            Sail 
 
@@ -461,7 +461,7 @@ innovation unseen before by the
 people of this land. Force the build. 
 Force the distribution. Take it slow. 
 That's how an evasive heist gets it 
-down. 
+down, Mr. Cole! 
 
            Oracle 
 
