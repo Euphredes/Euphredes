@@ -60,7 +60,14 @@ Yeah.
 
            Punched 
 
-
+Mr. Cole, I will not touch you. Next 
+thought that disagrees with you. 
+Makes you feel some type of way. Is 
+not some imagined thought that 
+somebody else would say to you. 
+Nonmaterial. Nonrock. That invisible 
+just said something to you, Mr. Cole. 
+Your fans, Mr. Cole. 
 
            Weed 
 
@@ -74,12 +81,16 @@ So, I'm a poet. Aside from jug
 
            Toes 
 
-
+Jim tells me: ten toes down mean five 
+to one, next. 
 
            Bread 
 
-
-
+Kierkegaard tells me Jesus is cool. I 
+tell you, Mr. Cole, such cool is Abraham 
+and Isaac wrapped into one. Nietzsche 
+tells me: something to die for doesn't 
+need defenders. 
 
            Policy 
 
@@ -89,7 +100,31 @@ haven't seen day one of work, yet.
 
            Literate 
 
+Literate 
+Liter ate 
+ate Liter 
+ate Litter 
+ate the Litter. 
 
+Literate 
+Lite rate. 
+
+Literate 
+Literat 
+Lite rat. 
+
+Literate 
+Literat 
+Liter at 
+Litter at. 
+
+Literate 
+Literat 
+Litera 
+Literal.  
+There! 
+Mr. Cole, 
+be literal. 
 
            Industrial 
 
@@ -523,6 +558,36 @@ notes.
 throw a cigarette in the Delaware. 
 Mr. Washington calls it my Ship. 
 I'm in. 
+
+           Up 
+
+Mr. Cole, methinks, I could blow: 
+Undercover Prodigy. 
+
+           Down 
+
+I outwork shiny suits, Mr. Cole. 
+All eyes on deck. 
+We just flipped a pyramid, Mr. Cole. 
+
+           Morales 
+
+Morales turnsaround. 
+Tells me: 
+if I had to run track, 
+I'd cut through the circle. 
+           * * *  
+Morales turnsright. 
+Tells me: 
+topbutton, do it or don't. 
+
+           Chest 
+
+That one, Mr. Cole, is one of a kind. 
+An obsidian rock from East Lyme 
+Connecticut in a walnut painted, 
+wooden chest. Can be last found on 
+Route Forty making its way to Baldimore. 
 
            Tour 
 
