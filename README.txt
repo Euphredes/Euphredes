@@ -619,7 +619,7 @@ Oracle from Apollo. I got some free
 advice from a veteran one time. It 
 afforded me such insight. 
 
-Be wary of just one book, Phaedrah. It 
+Be wary of just one book: Phaedrah. It 
 is the least controlled, as it is meant 
 as an ore desposit for the witch. 
 
