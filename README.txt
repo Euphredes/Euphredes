@@ -1686,6 +1686,31 @@ opponent worth treating underly. and
 it never falls or fights back. My 
 knuckles develop the artist's callus. 
 
+           Floor 
+
+Mr. Cole, any chicken farmer knows: 
+chalkline. That makes for an obedient 
+chicken. Draw the storyline, a chicken 
+follows the floorflow. 
+
+           Rugby 
+
+The only suit for a man is his words. 
+Trap the chicken. The storyline, like 
+a ball, does nothing on its own. The 
+chicken moves, not the ball. 
+
+           Father 
+
+The only suit for a man is his words. 
+Feed the chicken. The storyline: this 
+is what chickens like, what chickens 
+like, ... The storyline squares around 
+with: what chickens like, what 
+chickens like. There! in the square: 
+what chickens want, what chickens need, 
+what chickens want, what chickens need. 
+
            --------- 
            Poet: 
            A Calling 
