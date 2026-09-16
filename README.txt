@@ -653,6 +653,12 @@ are the tolls I will not pay for until
 I take a crown for myself, using my 
 Ship. Well, that makes for a heist. 
 
+You know, Mr. Cole. Survival costs 
+money. Social obligations cost 
+time. I let go of money like it is 
+not the poison I pick. My time is 
+mine to manage. 
+
            Approach 
 
 The navigation of my Ship solves 
