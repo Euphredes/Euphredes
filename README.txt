@@ -4,6 +4,10 @@
            AN EPIC 
 
 
+           SO YOU WANNA BE A WRITER 
+           A MOOD FROM BUKOWSKI 
+
+
            A BOOK FOR THE EVASIVE 
 
 
@@ -34,6 +38,11 @@ BOUNTIFUL
            Topdeck 
            ------- 
 
+           Gates 
+
+Kierkegaard tells me: why doesn't some 
+poet. Stop there! 
+
            Cole 
 
 Hey man. 
@@ -49,6 +58,10 @@ I've never seen your face.
 Yeah. 
 (What's up with your deck.) 
 
+           Punched 
+
+
+
            Weed 
 
 (Take a longass hit of this.) 
@@ -59,11 +72,24 @@ So, I'm a poet. Aside from jug
  lab. 
 (Show me some of it.) 
 
+           Toes 
+
+
+
+           Bread 
+
+
+
+
            Policy 
 
 Policy is ritual. Company books 
 unread. These blindfolded employees 
 haven't seen day one of work, yet. 
+
+           Literate 
+
+
 
            Industrial 
 
@@ -425,16 +451,32 @@ From Mr. Ford:
 
            Tabletop 
 
-City 
-    Boston     Cape 
-          is_1     is_2
-    Newport     ... 
-           is_3    ... 
-               .
-               . 
-               . 
-     Wilmington     Baltimore 
-               is_k          is_l 
+State 
+     MA              RI 
+       liberal.        independent. 
+       surrounded by   too small to 
+       states which    get in the way. 
+       govern with 
+       leeway. 
+     CT              NY 
+       word.           advance. 
+       articulation    governance 
+       done well       cannot 
+       grants          distrub 
+       passage.        sustaining. 
+     NJ              PA 
+       noble.          love. 
+       surrounded by   to be 
+       relaxed         concerned 
+       states.         requires: to 
+                       care. 
+     DE              MD 
+       polished.       gatekeeper. 
+       like New        DC's 
+       Jersey,         entrance. 
+       surrounded by 
+       relaxed 
+       states. 
 
            Whiteman 
 
