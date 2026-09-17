@@ -650,11 +650,11 @@ of my Ship. Walk downstairs.
 
 Take a right at the foot of the steps. 
 You will find each room is a library. I 
-will not overwhelm you with 
-storytelling. The short stories are like 
-gadgets and gizmos. The encyclopedias 
-offer provoking definitions. These are 
-like parts: clay, cogs, etc. 
+will not overwhelm you with storytelling. 
+The short stories are like gadgets and 
+gizmos. The encyclopedias offer 
+provoking definitions. These are like 
+parts: clay, cogs, etc. 
 
 Like my Table from Mr. Ford uptop, do 
 not touch my Tables from Nietzsche and 
