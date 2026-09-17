@@ -47,7 +47,7 @@ BOUNTIFUL
 Kierkegaard tells me: why doesn't some 
 poet. Stop there! 
 
-           Cole 
+           Warden 
 
 Hey man. 
 (What's good.) 
@@ -64,14 +64,14 @@ Yeah, I got you.
 
            Punched 
 
-Mr. Cole, I will not touch you. Next 
+Game Warden, I will not touch you. Next 
 thought that disagrees with you. 
 Makes you feel some type of way. Is 
 not some imagined thought that 
 somebody else would say to you. 
 Nonmaterial. Nonrock. That invisible 
-just said something to you, Mr. Cole. 
-Your fans, Mr. Cole. 
+just said something to you, Game Warden. 
+Your fans, Game Warden. 
 
            Weed 
 
@@ -86,16 +86,16 @@ So, I'm a poet. Aside from jug
            Clarity 
 
 I rivertalk. I riverwalk. I riverwrite, 
-Mr. Cole. Fleet is coercing a riverman 
+Game Warden. Fleet is coercing a riverman 
 into the shape of a Ship: a model to 
 live by, to see by, to feel by, to 
 getaway from other Ships, so one's Ship 
 belongs only to oneself. 
 
-When these riverwords reach you, Mr. 
-Cole, you will not be surprised. That 
-makes you, Mr. Cole, fit for words from 
-Fleet by me, Nick Morris. 
+When these riverwords reach you, Game 
+Warden, you will not be surprised. That 
+makes you, Game Warden, fit for words 
+from Fleet by me, Nick Morris. 
 
            Proverb 
 
@@ -104,9 +104,9 @@ not enough seedlings.
 
            Wu 
 
-Mr. Cole, say a place had thirty-six 
-candles, all lit. You, Mr. Cole, not I, 
-could acheive this: blow out all 
+Game Warden, say a place had thirty-six 
+candles, all lit. You, Game Warden, not 
+I, could acheive this: blow out all 
 thirty-six candles: Wu! 
 
 That's tangible. 
@@ -119,10 +119,10 @@ to one, next.
            Bread 
 
 Kierkegaard tells me Jesus is cool. I 
-tell you, Mr. Cole, such cool is Abraham 
-and Isaac wrapped into one. Nietzsche 
-tells me: something to die for, it 
-doesn't require defenders. 
+tell you, Game Warden, such cool is 
+Abraham and Isaac wrapped into one. 
+Nietzsche tells me: something to die 
+for, it doesn't require defenders. 
 
            Policy 
 
@@ -155,8 +155,16 @@ Literat
 Litera 
 Literal.  
 That one! 
-Mr. Cole, 
+Game Warden, 
 be literal. 
+
+           Literal 
+
+As I bring this Ship of discussion to 
+you, Game Warden, it is practice: 
+reconnect communication away from the 
+nonmaterial. I do it for the words, 
+Game Warden. 
 
            Industrial 
 
@@ -172,10 +180,10 @@ satisfaction through distribution.
 
 Ludwig tells me only poets are meant to 
 speak. He tells me language itself is 
-playing games on knowledge. You're next 
-in my Yankee Doodle Dandy, Mr. Cole. The 
-pen scripts swordplay. What irishmanhood 
-leads the dance? 
+playing games on knowledge. Let me 
+Yankee Doodle Dandy, Game Warden. 
+The pen scripts swordplay. What 
+irishmanhood leads the dance? 
 
            Perhaps 
 
@@ -190,9 +198,9 @@ stage.
            Tears 
 
 A poet's tears become bullets when they 
-freeze. You see, Mr. Cole, when I take 
-from a book, I open it up randomly to 
-catch where the paws of my sight have 
+freeze. You see, Game Warden, when I 
+take from a book, I open it up randomly 
+to catch where the paws of my sight have 
 landed upright on a set of words. 
 
 Phaedrah tells me she shed a tear after 
@@ -223,7 +231,7 @@ stranger, who I've been closest to,
 gambling over my life and death. 
 
 .it., this mystery goes by many names. 
-Perhaps you too, Mr. Cole, call .it. 
+Perhaps you too, Game Warden, call .it. 
 something different than: ego. But who 
 would want to deal with such a dangerous 
 perhaps? Who would want to admit to 
@@ -372,9 +380,9 @@ A throne is a table for two.
            Mutany 
 
 New England. That is a traitor's title, 
-Mr. Cole. Mr. Washington and Company 
+Game Warden. Mr. Washington and Company 
 tell me England is too incompetent. I 
-motion for a Fleet: Mr. Cole, second 
+motion for a Fleet: Game Warden, second 
 this motion: for an American Epic: sail 
 the roads of business, as all concrete 
 roads are meant for people of business: 
@@ -430,7 +438,7 @@ person's bounty.
 
 A Sovereign Ship means worse than the 
 death of a man. It is a laborers union, 
-Mr. Cole: a heist. 
+Game Warden: a heist. 
 
 Inside with: the white man made this: 
 the Founding Fathers of America and 
@@ -480,20 +488,20 @@ embarrassment. As a Fleet operating with
 maximal self-reliance, we will force 
 collusion to pool resources into one 
 Grand Bank. Better than the Federal 
-Reserve. You see, Mr. Cole, space is more 
-valuable than money. A product that fails 
-to sell takes up space for products that 
-do sell. Poor inventory mangement 
-loses more sales than anyone would 
-ever want to calculate. That! spurs 
-a national warehouse that is set to 
-distribute, not hold, all resources. 
+Reserve. You see, Game Warden, space is 
+more valuable than money. A product that 
+fails to sell takes up space for 
+products that do sell. Poor inventory 
+mangement loses more sales than anyone 
+would ever want to calculate. That! 
+spurs a national warehouse that is set 
+to distribute, not hold, all resources. 
 This would surely bring forth 
 innovation unseen before by the 
 people of this land. Force the build. 
 Force the distribution. Take it slow. 
 That's how an evasive heist gets it 
-down, Mr. Cole! 
+down, Game Warden! 
 
            Oracle 
 
@@ -564,11 +572,12 @@ Delaware.
            Money 
 
 Dead people have more time on the same 
-money you claim is earned by you, Mr. Cole. 
-Money is a hand-me-down. The circulation 
-of money belongs more to those who 
-circulated and worked with it before you. 
-Look what was made before you. 
+money you claim is earned by you, Game 
+Warden. Money is a hand-me-down. The 
+circulation of money belongs more to 
+those who circulated and worked with it 
+before you. Look what was made before 
+you. 
 
 I don't have a job. I don't play around 
 in what was already made for me, like I 
@@ -596,14 +605,14 @@ I'm in.
 
            Up 
 
-Mr. Cole, methinks, I could blow: 
+Game Warden, methinks, I could blow: 
 Undercover Prodigy. 
 
            Down 
 
-I outwork shiny suits, Mr. Cole. 
+I outwork shiny suits, Game Warden. 
 All eyes on deck. 
-We just flipped a pyramid, Mr. Cole. 
+We just flipped a pyramid, Game Warden. 
 
            Morales 
 
@@ -618,7 +627,7 @@ topbutton, do it or don't.
 
            Chest 
 
-That one, Mr. Cole, is one of a kind. 
+That one, Game Warden, is one of a kind. 
 An obsidian rock from East Lyme 
 Connecticut in a walnut painted, 
 wooden chest. Can be last found on 
@@ -629,8 +638,8 @@ Route Forty making its way to Baldimore.
 This Ship is two-story. Belowdeck 
 has four rooms, starting with AUTHORITY 
 and ending with BOUNTIFUL. I just gave 
-you, Mr. Cole, a tour of the topdeck of 
-my Ship. Walk downstairs. 
+you, Game Warden, a tour of the topdeck 
+of my Ship. Walk downstairs. 
 
            Foot 
 
@@ -685,7 +694,7 @@ are the tolls I will not pay for until
 I take a crown for myself, using my 
 Ship. Well, that makes for a heist. 
 
-You know, Mr. Cole. Survival costs 
+You know, Game Warden. Survival costs 
 money. Social obligations cost 
 time. I let go of money like it is 
 not the poison I pick. My time is 
@@ -1699,10 +1708,10 @@ Chess
 Circles 
 Snake 
 
-           -------- 
+           ------------------ 
            Fighter: 
-           An Asset 
-           -------- 
+           A Book for Fathers 
+           ------------------ 
 
            Contents 
 
@@ -1800,7 +1809,7 @@ knuckles develop the artist's callus.
 
            Floor 
 
-Mr. Cole, any chicken farmer knows: 
+Game Warden, any chicken farmer knows: 
 chalkline. That makes for an obedient 
 chicken. Draw the storyline, a chicken 
 follows the floorflow. 
@@ -1845,12 +1854,12 @@ Bricks
 
 Introduction 
 Movie 
-Cole
+Warden
 
-           Cole 
-           ---- 
+           Warden 
+           ------ 
  
-           Toomuch 
+           Granted 
 
 (I said some.) 
 My bad. 
