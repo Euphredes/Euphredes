@@ -1709,23 +1709,23 @@ establish areas for Phaedrah.
            A PSYCHOLOGY 
 
 
-           ---------- 
-           Campsite: 
-           A Homebase 
-           ---------- 
+           ------------------------ 
+           Site: 
+           A Book for Steadyseekers 
+           ------------------------ 
 
            Contents 
 
 Introduction 
-Firepit 
-Waterfront 
+Fire 
+Water 
 Sites 
 Winter 
 
-           ---------- 
+           ------------------- 
            Artifacts: 
-           A Treasury 
-           ---------- 
+           A Book for Currency 
+           ------------------- 
 
            Contents 
 
@@ -1735,17 +1735,17 @@ Books
 Altar 
 Chest 
 
-           ----------- 
+           ---------------- 
            Pleasure: 
-           A Grounding 
-           ----------- 
+           A Book for Drive 
+           ---------------- 
 
            Contents 
 
 Introduction 
 Drink 
 Smoke 
-Phaedrah 
+Her 
 Landscape 
 
 
