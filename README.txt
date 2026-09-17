@@ -1755,7 +1755,7 @@ Landscape
 
            ------------------ 
            Consultant: 
-           A Fork In The Road 
+           A Book for a Heist 
            ------------------ 
 
            Contents 
@@ -1766,10 +1766,10 @@ Flow
 Evasion 
 Inventory 
 
-           --------- 
+           -------------------- 
            Engineer: 
-           A Career 
-           --------- 
+           A Book for an Oracle 
+           -------------------- 
 
            Contents 
 
@@ -1779,10 +1779,10 @@ Graphs
 Models 
 Pipeline 
 
-           --------- 
+           ------------------ 
            Walker: 
-           A Floater 
-           --------- 
+           A Book for Workers 
+           ------------------ 
 
            Contents 
 
