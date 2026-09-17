@@ -197,7 +197,7 @@ Masses drift. They no longer take myth
 nor Religion seriously enough. They no 
 longer take the best stories of all 
 time seriously enough. The storytellers 
-step aside. The linguists take center 
+step aside. The translators take center 
 stage. 
 
            Tears 
