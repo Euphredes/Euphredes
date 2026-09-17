@@ -672,7 +672,7 @@ is the least controlled, as it is meant
 as an ore desposit for the witch. 
 
 In rooms, I'll offer books covering 
-linguistic demonstrations. I'll reveal 
+english demonstrations. I'll reveal 
 some procedures and plans. The first 
 room, AUTHORITY, is the most serious. 
 
