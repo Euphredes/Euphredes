@@ -1766,19 +1766,6 @@ Flow
 Evasion 
 Inventory 
 
-           -------------------- 
-           Engineer: 
-           A Book for an Oracle 
-           -------------------- 
-
-           Contents 
-
-Introduction 
-Tables 
-Graphs 
-Models 
-Pipeline 
-
            ------------------ 
            Walker: 
            A Book for Workers 
