@@ -1914,10 +1914,10 @@ chickens like. There! in the square:
 what chickens want, what chickens need, 
 what chickens want, what chickens need. 
 
-           --------- 
+           ------------------- 
            Poet: 
-           A Calling 
-           --------- 
+           A Book for Thinkers 
+           ------------------- 
 
            Contents 
 
