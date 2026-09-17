@@ -1017,7 +1017,7 @@ Pitch a water bottle at the Liberty Bell
  on the other side of the street in 
  aforesaid Nashua New Hampshire. 
 Incarcerated in Bridgewater State Hospital 
- of Massachusetts. 
+ in Massachusetts. 
 Living outside to show the world what 
  running The Ave looks like to me: 
  Tewksbury Massachusetts to New Haven 
