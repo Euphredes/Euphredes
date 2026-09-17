@@ -621,11 +621,13 @@ We just flipped a pyramid, Game Warden.
 
            Morales 
 
+In homeroom, 
 Morales turnsaround. 
 Tells me: 
 if I had to run track, 
 I'd cut through the circle. 
-           * * *  
+
+At the lockers, 
 Morales turnsright. 
 Tells me: 
 topbutton, do it or don't. 
