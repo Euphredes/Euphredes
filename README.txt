@@ -53,7 +53,7 @@ Kierkegaard tells me to work the courage
 to think a thought into a wholeness. A 
 great thought is not a sin in the mind, 
 hands, and legs of a great person; but 
-is in the person  who's merely an 
+is a sin in the person who's merely an 
 imitator, without any kind of such 
 courage. 
 
@@ -106,11 +106,6 @@ When these riverwords reach you, Game
 Warden, you will not be surprised. That 
 makes you, Game Warden, fit for words 
 from Fleet by me, Nick Morris. 
-
-           Proverb 
-
-A Hip-Hop proverb: too many planters, 
-not enough seedlings. 
 
            Wu 
 
@@ -576,8 +571,8 @@ Where.
 Aware. 
 
 That's contains the before, during, and 
-after they got there. It is called the 
-Delaware. 
+after they crossed that river. It is 
+called the Delaware. 
 
            Money 
 
@@ -641,7 +636,7 @@ That one, Game Warden, is one of a kind.
 An obsidian rock from East Lyme 
 Connecticut in a walnut painted, 
 wooden chest. Can be last found on 
-Route Forty making its way to Baldimore. 
+Route Forty making its way to Baltimore. 
 
            Tour 
 
@@ -750,6 +745,14 @@ tactics are proactive, not reactive.
               gives you a glow, 
               use it to give you a 
               go. 
+
+           Virtues 
+
+1. All generosity begins with theft. 
+2. Good luck, after rejecting me. 
+3. Make information commonplace. 
+4. Count the issues. Disregard blame. 
+5. A problem leaves. It may change. 
 
 
            AUTHORITY 
@@ -1172,7 +1175,7 @@ the virtues as we work them.
            Candles 
 
 First, love family and friends. Second, 
-praise and respect rarity. Third, be 
+praise and protect rarity. Third, be 
 nice. Fourth, have a partner or more to 
 build or destory with. Fifth, be 
 literal. Sixth, be a caregiver. Seventh, 
