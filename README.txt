@@ -1555,70 +1555,43 @@ although blame is
 this happens, 
 she is there. 
 
-           ------------------------- 
-           Walden: 
-           Phaedrah's First Dominion 
-           ------------------------- 
+           ------------------- 
+           Dominion: 
+           A Book for Phaedrah 
+           ------------------- 
 
            Contents 
 
 Introduction 
-Candles 
-Walks 
-Sites 
-Triangle 
+Walked 
+Spoken 
+Written 
+Felt 
 
-           -------------------------- 
-           Bridgewater: 
-           Phaedrah's Second Dominion 
-           -------------------------- 
+           Introduction 
+           ------------ 
 
-           Contents 
+           Letter 
 
-Introduction 
-Candles 
-Walks 
-Sites 
-Triangle 
+Dear Phaedrah, From Nick, 
 
-           ------------------------- 
-           Hudson: 
-           Phaedrah's Third Dominion 
-           ------------------------- 
+You don't make me feel some type of 
+way. You make me feel some demand to 
+stay. Social pressure tells me: we're 
+not allowed: our friendship would be 
+a lifelong embarrassment against you. 
+That social pressure, robbing me of 
+the euphoria of your presence. That 
+makes me feel some type of way: motion. 
 
-           Contents 
+Demolition creates space. 
+Love creates fuel. 
 
-Introduction 
-Candles 
-Walks 
-Sites 
-Triangle 
-
-           -------------------------- 
-           Delaware: 
-           Phaedrah's Fourth Dominion 
-           -------------------------- 
-
-           Contents 
-
-Introduction 
-Candles 
-Walks 
-Sites 
-Triangle 
-
-           ------------------------- 
-           Chesapeake: 
-           Phaedrah's Fifth Dominion 
-           ------------------------- 
-
-           Contents 
-
-Introduction 
-Candles 
-Walks 
-Sites 
-Triangle 
+When I can't do caregiving by your 
+side, well, I'll lay the groundwork for 
+cult activity. That is this book: after 
+Phaedrah, Nick stole space and time to 
+establish areas for Phaedrah. 
 
 
            UNDERGROUND 
@@ -1703,7 +1676,7 @@ Pipeline
            Contents 
 
 Introduction 
-Spirit 
+Inward 
 Chess 
 Circles 
 Snake 
