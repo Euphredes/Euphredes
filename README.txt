@@ -752,7 +752,7 @@ tactics are proactive, not reactive.
 2. Good luck, after rejecting me. 
 3. Make information commonplace. 
 4. Count the issues. Disregard blame. 
-5. A problem leaves. It may change. 
+5. Leave the issues. They may change. 
 
 
            AUTHORITY 
@@ -1233,20 +1233,6 @@ block: a layout: clean connects of
 points and lines, of people and things 
 in the place. 
 
-
-           ------------------ 
-           R.I.T.: 
-           A Book for Science 
-           ------------------ 
-
-           Contents 
-
-Introduction 
-Freshman 
-Sophomore 
-Deans 
-PhD 
-
            ----------------------- 
            Pirate: 
            A Book for the Homeless 
@@ -1255,10 +1241,10 @@ PhD
            Contents 
 
 Introduction 
-Northeast 
-Hudson 
-Delaware 
-Chesapeake 
+Stores 
+Drops 
+Breaks 
+Library 
 
 
            MYSTERY 
