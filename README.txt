@@ -23,7 +23,7 @@ Licensing: Content in this text file
            International license. 
 Author: Nick Morris. 
 Age: 33 Years Old. 
-Release: Wednesday, September 16th 2026. 
+Release: Thursday, September 17th 2026. 
 Location: Cherry Hill, NJ. 
 
            ----- 
