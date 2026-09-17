@@ -272,7 +272,7 @@ where .it. can reside.
 
            Map 
 
-Longitude: 
+Latitude: 
 A chicken farmer builds a two-story 
 cabin on a lake in Maine. On the other 
 side of the dirt road in these woods, 
@@ -288,7 +288,7 @@ Mel tells the State to notice the
 trailer with wheels upholding his 
 toolshed. because it moves, it can stay. 
 
-Latitude: 
+Longitude: 
 Mel is driving down the dirt road to his 
 cabin, one day. He spots a truck turned 
 over in the ditch on the side of the 
