@@ -2336,6 +2336,48 @@ Introduction
 Movie 
 Warden
 
+           Introduction 
+           ------------ 
+
+           Storyline 
+
+Opponent 
+ Maslow's Pyramid 
+Game 
+ Heist 
+Monster 
+ Penal Colony 
+Outward 
+ Physical Adventure 
+Inward 
+ Obstacle Course 
+
+           Approach 
+
+Problem 
+ Slitherlink Knapsack 
+Sets 
+ Destinations 
+ Traps 
+ Items 
+ Storages 
+Solver 
+ Greedy 
+
+           Virtues 
+
+1. All generosity begins with theft. 
+2. Good luck, after rejecting me. 
+3. Make information commonplace. 
+4. Count the issues. Disregard blame. 
+5. Leave the issues. They may change. 
+
+           Movie 
+           ----- 
+
+
+           * * *  
+
            Warden 
            ------ 
  
