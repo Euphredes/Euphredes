@@ -242,6 +242,49 @@ reading Moby Dick.
 Nick's just passing through, chill. He's 
 on some Tea Party shit. 
 
+           Nick 
+
+I tell Massachusetts: they don't get me 
+back. They forgot about their writers. 
+
+           Ball 
+
+Mr. Whittier at the mound never fails. 
+Mr. Frost at bat. One pitch. Fenway 
+collapses. Mr. Frost tells me: poetry 
+is not some boxing match. I tell 
+Mr. Frost: they don't take choice 
+seriously enough. 
+
+           Ballpark 
+
+At the fork in the road, I do not go 
+straight. I go offroad, hard left. 
+Make it back somewhere on the 
+leftside road. Build an arc somewhere 
+to the rightside road. Inside, a 
+field, solving all kinds of one 
+problem: get with this or that. A 
+ballpark is a project: a scope. 
+
+           Whites 
+
+Mr. Adams tells me: I know Mr. Prescott, 
+personally, now, where's the warning 
+shot? 
+
+Emily tells me: what is wanted is just 
+over there, on top of that hill, and 
+when you get there, Nick, you'll find 
+it has moved to the top of the next 
+hill. 
+
+I make it to that hill. Load my Cannons 
+to remind the next hiull of what 
+Nietzsche tells me: free will is an 
+argument for fools: there is only 
+strong and weak wills. 
+
            Sea 
 
 A thought happens when .it. wants to, 
@@ -638,6 +681,11 @@ I'm in.
 
 Game Warden, methinks, I could blow: 
 Undercover Prodigy. 
+
+           L 
+
+When I was thirtythree, I made complex: 
+commonplace. 
 
            Down 
 
