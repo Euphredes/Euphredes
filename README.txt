@@ -1365,7 +1365,7 @@ protection are in Loyalty.
 My first practice 
 with Phaedrah was to 
 be possessed: 
-Poet, Muse: 
+Poet, Muse. 
 Phaedrah, Morris. 
 
            Protection 
