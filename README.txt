@@ -1086,7 +1086,7 @@ Smack Dubliners and A Portrait of the Artist
  minting outside of the Masonic 
  Temple in downtown Nashua by the 
  Nashua River in New Hampshire. 
-Pitch a water bottle at the Liberty Bell 
+Pitch a water bottle at the liberty bell 
  on the other side of the street in 
  aforesaid Nashua New Hampshire. 
 Incarcerated in Bridgewater State Hospital 
