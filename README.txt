@@ -1560,7 +1560,7 @@ voices and a host
 are touch and go. 
 sight, taste, and smell 
 are dispensable. 
-twentyfour/seven composed. 
+twentyfourseven composed. 
 
            Blues 
 
@@ -1607,7 +1607,7 @@ cell onefourteen in lenox,
 decorated with mental 
  art. 
 cradled by her, 
-unsure of the spirit 
+unsure of who is 
  at hand. 
 
            Snake 
