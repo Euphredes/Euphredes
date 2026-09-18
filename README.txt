@@ -9,7 +9,7 @@
 
 
            SO YOU WANNA BE A WRITER 
-           A MOOD FROM BUKOWSKI 
+           A SPHYNX FROM BUKOWSKI 
 
 
            A BOOK FOR THE EVASIVE 
@@ -23,7 +23,7 @@ Licensing: Content in this text file
            International license. 
 Author: Nick Morris. 
 Age: 33 Years Old. 
-Release: Thursday, September 17th 2026. 
+Release: Friday, September 18th 2026. 
 Location: Cherry Hill, NJ. 
 
            ----- 
@@ -36,16 +36,38 @@ Topdeck
 Belowdeck 
 AUTHORITY 
 MYSTERY 
-UNDERGROUND 
+GROUNDFLOOR 
 BOUNTIFUL 
 
            Topdeck 
            ------- 
 
+           Friday 
+
+This book ends today, Mr. Cole. The 
+Game Warden showed up to my Ship. 
+
            Gates 
 
 Kierkegaard tells me: why doesn't some 
 poet. Stop there! 
+
+           Where 
+
+My mouth must stop running away from 
+her. and Americans need to focus on the 
+resources being distributed instead of 
+social trivia. Where: is the focus. 
+Social trivia: is for freeloaders. 
+
+           Tax 
+
+If government is subpar at distribution, 
+because that is a business matter, 
+government only stockpiling, then we 
+run a heist to create the effect of 
+distribution. 
+
 
            Great 
 
@@ -56,6 +78,11 @@ hands, and legs of a great person; but
 is a sin in the person who's merely an 
 imitator, without any kind of such 
 courage. 
+
+Mr. Allen tells me: there is no such 
+thing as a great task. He continues: if 
+many little tasks are done well, and put 
+together well, that is a great work. 
 
            Warden 
 
@@ -591,11 +618,11 @@ and leave it behind. Whenever I return
 to a spot I made and it's unchanged, 
 methinks, that is mine. 
 
-           Underground 
+           Groundfloor 
 
 A network of things gets respect from 
 people. I have book deposits from 
-Maine to Maryland. Underground 
+Maine to Maryland. Groundfloor 
 library. Deposits holed up like 
 treasure chests. Cold campsites to and 
 from spots. Such word is currency. 
@@ -780,7 +807,7 @@ Mystery
            Fugitive 
 
 I am a fugitive to the judicial 
-system. One artifact in my underground 
+system. One artifact in my groundfloor 
 library is a book that I deposited 
 into AI. The remaining words of this 
 Introduction are from AI. I requested 
@@ -1674,10 +1701,6 @@ she is there.
            Contents 
 
 Introduction 
-Walked 
-Spoken 
-Written 
-Felt 
 
            Introduction 
            ------------ 
@@ -1705,7 +1728,7 @@ Phaedrah, Nick stole space and time to
 establish areas for Phaedrah. 
 
 
-           UNDERGROUND 
+           GROUNDFLOOR 
            A PSYCHOLOGY 
 
 
