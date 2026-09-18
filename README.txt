@@ -1270,10 +1270,18 @@ in the place.
            Contents 
 
 Introduction 
-Stores 
-Drops 
-Breaks 
-Library 
+
+           Introduction 
+           ------------ 
+
+           Card 
+
+You, Game Warden, walk into a store 
+with a card that doesn't pay. You get 
+through the register, failing. You 
+leave that store. That satisfies the 
+endtoend process of every store, for 
+customers. 
 
 
            MYSTERY 
