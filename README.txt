@@ -36,7 +36,6 @@ Topdeck
 Belowdeck 
 AUTHORITY 
 MYSTERY 
-GROUNDFLOOR 
 BOUNTIFUL 
 
            Topdeck 
@@ -670,7 +669,7 @@ Route Forty making its way to Baltimore.
            Tour 
 
 This Ship is twostory. Belowdeck 
-has four rooms, starting with AUTHORITY 
+has three rooms, starting with AUTHORITY 
 and ending with BOUNTIFUL. I just gave 
 you, Game Warden, a tour of the topdeck 
 of my Ship. Walk downstairs. 
