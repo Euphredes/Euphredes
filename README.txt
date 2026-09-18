@@ -67,7 +67,6 @@ government only stockpiling, then we
 run a heist to create the effect of 
 distribution. 
 
-
            Great 
 
 Kierkegaard tells me to work the courage 
@@ -211,8 +210,8 @@ satisfaction through distribution.
 
 Ludwig tells me only poets are meant to 
 speak. He tells me language itself is 
-playing games on knowledge. Let me 
-Yankee Doodle Dandy, Game Warden. 
+playing games on knowledge. Let me end 
+this Yankee Doodle Dandy, Game Warden. 
 The pen scripts swordplay. What 
 irishmanhood leads the dance? 
 
@@ -280,7 +279,7 @@ it has moved to the top of the next
 hill. 
 
 I make it to that hill. Load my Cannons 
-to remind the next hiull of what 
+to remind the next hill of what 
 Nietzsche tells me: free will is an 
 argument for fools: there is only 
 strong and weak wills. 
@@ -1801,19 +1800,6 @@ Evasion
 Inventory 
 
            ------------------ 
-           Walker: 
-           A Book for Workers 
-           ------------------ 
-
-           Contents 
-
-Introduction 
-Inward 
-Chess 
-Circles 
-Snake 
-
-           ------------------ 
            Fighter: 
            A Book for Fathers 
            ------------------ 
@@ -1834,7 +1820,7 @@ Wall
 Why not feel like a coward now? to make 
 it to tomorrow. 
 
-Anytime, except once, someone gets 
+Anytime, except one time, someone gets 
 aggressive with me, I never feel any 
 desire to fight. That is, to kill. I'm 
 left empty, available for a case of 
@@ -1907,14 +1893,14 @@ elbow reaching the problem's head.
            Underly 
 
 Animate objects are more valuable than 
-inanimate objects. A wall is the only 
+inanimate objects. A wall is an 
 opponent worth treating underly. and 
 it never falls or fights back. My 
 knuckles develop the artist's callus. 
 
            Floor 
 
-Game Warden, any chicken farmer knows: 
+Game Warden, chicken farmers know: 
 chalkline. That makes for an obedient 
 chicken. Draw the storyline, a chicken 
 follows the floorflow. 
