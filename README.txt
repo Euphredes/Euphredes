@@ -136,10 +136,10 @@ from Fleet by me, Nick Morris.
 
            Wu 
 
-Game Warden, say a place had thirty-six 
+Game Warden, say a place had thirtysix 
 candles, all lit. You, Game Warden, not 
 I, could acheive this: blow out all 
-thirty-six candles: Wu! 
+thirtysix candles: Wu! 
 
 That's tangible. 
 
@@ -255,7 +255,7 @@ strikes fear into my authenticity.
 I'll use silence, chanting, or humming 
 to cope: to overload my mind until some 
 reaction within me, that is strong 
-enough, breaks through my self-imposed 
+enough, breaks through my selfimposed 
 monotony: a straitjacket. That reaction 
 is a choice for me to do something with 
 or not. I feel like a gambler with a 
@@ -300,7 +300,7 @@ where .it. can reside.
            Map 
 
 Latitude: 
-A chicken farmer builds a two-story 
+A chicken farmer builds a twostory 
 cabin on a lake in Maine. On the other 
 side of the dirt road in these woods, 
 his workshop: a toolshed. 
@@ -498,7 +498,7 @@ on my Ship: I find out enough examples,
 enough events from the groundfloor 
 where labor happens, and find my 
 sufficient success rate: I survive by 
-radical self-reliance: a thoreaubred 
+radical selfreliance: a thoreaubred 
 without the family supporting the 
 stay I don't afford at Walden or any 
 site really: a fordist that will take 
@@ -517,7 +517,7 @@ A Fleet's evasive coersions will strike
 down the hands stockpiling resources 
 with what those hands fear most: 
 embarrassment. As a Fleet operating with 
-maximal self-reliance, we will force 
+maximal selfreliance, we will force 
 collusion to pool resources into one 
 Grand Bank. Better than the Federal 
 Reserve. You see, Game Warden, space is 
@@ -605,7 +605,7 @@ called the Delaware.
 
 Dead people have more time on the same 
 money you claim is earned by you, Game 
-Warden. Money is a hand-me-down. The 
+Warden. Money is a handmedown. The 
 circulation of money belongs more to 
 those who circulated and worked with it 
 before you. Look what was made before 
@@ -669,7 +669,7 @@ Route Forty making its way to Baltimore.
 
            Tour 
 
-This Ship is two-story. Belowdeck 
+This Ship is twostory. Belowdeck 
 has four rooms, starting with AUTHORITY 
 and ending with BOUNTIFUL. I just gave 
 you, Game Warden, a tour of the topdeck 
@@ -973,7 +973,7 @@ Digital Creator of mixtapes on
  SoundCloud, scientific engines 
  on GitHub, and Individual 
  Sovereignty. 
-Walker of thirty-six counties in 
+Walker of thirtysix counties in 
  America to discipline my mind,  
  foster my mysteries, and deliver 
  artifacts of how I think and feel to 
@@ -1008,7 +1008,7 @@ Training Center of The Great Rock
            Militant 
 
 Logically, Greanleaf practices everyday 
-yield a body-for-body exchange 
+yield a bodyforbody exchange 
 system. In such a system, money is 
 not the exchange factor. It is my 
 birthright to choose how I practice 
@@ -1036,7 +1036,7 @@ From Nietzsche:
            Tabletop 
 
 Smack Dubliners and A Portrait of the Artist 
- as a Young Man--And Other Works: at the 
+ as a Young Man-- And Other Works: at the 
  minting outside of the Masonic 
  Temple in downtown Nashua by the 
  Nashua River in New Hampshire. 
@@ -1057,7 +1057,7 @@ Incarcerated in Middleton Correctional
  Facility in Massachusetts. 
 Third time outside: Danvers Massachusetts 
  to Baltimore Maryland, then Edgewood 
- Maryland to Camden County New Jersey. 
+ Maryland to Philadelphia Pennsylvania. 
 Nashua ritualwork: The starting point is 
  my problem with the Haverhill Masonic 
  Lodge in Massachusetts, and the ending 
@@ -1161,8 +1161,8 @@ Geometry
 To cultivate, to preserve. Those two 
 objectives make language seem to be a 
 minor thing compared to motions. A 
-cult must be self-cultivating and 
-self-preserving because it has the 
+cult must be selfcultivating and 
+selfpreserving because it has the 
 building blocks of a culture. 
 
            Master 
@@ -1514,7 +1514,7 @@ voices and a host
 are touch and go. 
 sight, taste, and smell 
 are dispensable. 
-twenty-four/seven composed. 
+twentyfour/seven composed. 
 
            Blues 
 
@@ -1539,7 +1539,7 @@ walk a large star to reap rewards.
            Southward 
 
 tremble in the gold heat midday, 
-sweat full of curls and wind-filled 
+sweat full of curls and windfilled 
  eyes. 
 a cool spring's bank in the bottle. 
 
@@ -1557,7 +1557,7 @@ the silence becomes the snow sphinx.
 
            Murals 
 
-cell one-fourteen in lenox, 
+cell onefourteen in lenox, 
 decorated with mental 
  art. 
 cradled by her, 
@@ -1736,50 +1736,6 @@ Phaedrah, Nick stole space and time to
 establish areas for Phaedrah. 
 
 
-           GROUNDFLOOR 
-           A PSYCHOLOGY 
-
-
-           ------------------------ 
-           Site: 
-           A Book for Steadyseekers 
-           ------------------------ 
-
-           Contents 
-
-Introduction 
-Fire 
-Water 
-Sites 
-Winter 
-
-           ------------------- 
-           Artifacts: 
-           A Book for Currency 
-           ------------------- 
-
-           Contents 
-
-Introduction 
-Bags 
-Books 
-Altar 
-Chest 
-
-           ---------------- 
-           Pleasure: 
-           A Book for Drive 
-           ---------------- 
-
-           Contents 
-
-Introduction 
-Drink 
-Smoke 
-Her 
-Landscape 
-
-
            BOUNTIFUL 
            A MAN 
 
@@ -1865,7 +1821,7 @@ me, the problem gets loose to
 prove I really am a bitch. That 
 underestimated moment is when I 
 pit my elbowpit around the 
-problem's throat. One-arm hug 
+problem's throat. Onearm hug 
 the problem's neck like a kid 
 climbing up for a piggyback. 
 Lean into falling on the ground. 
