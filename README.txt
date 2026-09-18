@@ -398,7 +398,7 @@ the mystery.
            Witch 
 
 Spirit: 
-just me and my environment. 
+just me and the environment. 
 just me and my thoughts. 
 just me and her. 
 just her. 
