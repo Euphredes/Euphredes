@@ -1419,7 +1419,7 @@ everyone wants to be
  closer. 
 I wear my heart like 
  a rose. 
-I give gifts to evoke. 
+I give gifts to provoke. 
 let the people move 
  over. 
 
